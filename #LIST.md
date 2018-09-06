@@ -37,7 +37,7 @@
 >• **BRAHMS**:**➔Sinfonica** - **S**infonie: Op. 68, 73, 90, 98 **[J. van Zweden, 2010] (S)**.                     
 **➔Pianoforte solo** - **D**anze ungheresi: versione per orchestra **[I. Fischer, Budapest Festival Orchestra, 1999] (S)**.
 
-• **BUXTEHUDE**:➔Vocale - Cantata: BuxWV 64 **[A. Deller, Deller Consort, 1971] (S)**.
+>• **BUXTEHUDE**:**➔Vocale** - **C**antata: BuxWV 64 **[A. Deller, Deller Consort, 1971] (S)**.
 
 ⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/edit/master/LIST.md)
 
