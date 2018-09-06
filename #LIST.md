@@ -28,13 +28,18 @@
 
 >• **BERG**:➔**Sinfonica** - **P**er orchestra: 3 pezzi per orchestra Op. 6, Concerto per violino ed orchestra, Passacaglia, Wein, Weib und Gesang! (valzer op. 333 di Strauss II trascritto da Berg per ensemble) **[M. Venzago, Gothenburg Symphony Orchestra, 2004-7] (S)**.
 
-• BERIO:➔Sinfonica - Per orchestra: Sequenze: Sequenza I per flauto, Sequenza II per arpa, Sequenza III per voce femminile, Sequenza IV per pianoforte, Sequenza V per trombone, Sequenza VI per viola, Sequenza VII per oboe, Sequenza VIIb per sassofono soprano, Sequenza VIII per violino, Sequenza IXa per clarinetto, Sequenza IXb per sassofono contralto, Sequenza IXc per per clarinetto basso, Sequenza X per tromba e risonanze di pianoforte, Sequenza XI per chitarra, Sequenza XII per fagotto,  Sequenza XIII per fisarmonica, Sequenza XIV per violoncello, Sequenza XIVb per contrabbasso.                                                                                          ➔Strumento solista: Chanson pour Pierre Boulez per violoncello, Comma per clarinetto in Mib, Fa-Si per organo, Gesti per flauto dolce, Gute nacht per tromba, Les mots sont allés per violoncello, Lied per clarinetto, Psy per contrabbasso, Rounds per clavicembalo [mode®, 2006]. 
+>• **BERIO**:➔**Sinfonica** - Per orchestra: **S**equenze: Sequenza I per flauto, Sequenza II per arpa, Sequenza III per voce femminile, Sequenza IV per pianoforte, Sequenza V per trombone, Sequenza VI per viola, Sequenza VII per oboe, Sequenza VIIb per sassofono soprano, Sequenza VIII per violino, Sequenza IXa per clarinetto, Sequenza IXb per sassofono contralto, Sequenza IXc per per clarinetto basso, Sequenza X per tromba e risonanze di pianoforte, Sequenza XI per chitarra, Sequenza XII per fagotto,  Sequenza XIII per fisarmonica, Sequenza XIV per violoncello, Sequenza XIVb per contrabbasso.                                                                                          
+**➔Strumento solista**: Chanson pour Pierre Boulez per violoncello, Comma per clarinetto in Mib, Fa-Si per organo, Gesti per flauto dolce, Gute nacht per tromba, Les mots sont allés per violoncello, Lied per clarinetto, Psy per contrabbasso, Rounds per clavicembalo **[mode®, 2006]**. 
 
-• BERLIOZ:➔Sinfonica - Sinfonia: H 48 [E. Inbal, Radio-Sinfonie-Orchester Frankfurt, 1987] (S).                                                                                               ➔Sacra: Requiem H 75 [E. Ormandy, Philadelphia Orchestra, 1964] (S).
-• BRAHMS:➔Sinfonica - Sinfonie: Op. 68, 73, 90, 98 [J. van Zweden, 2010]. ➔Pianoforte solo - Danze ungheresi: versione per orchestra [I. Fischer, Budapest Festival Orchestra, 1999] (S).
-• BUXTEHUDE:➔Vocale - Cantata: BuxWV 64 [A. Deller, Deller Consort, 1971] (S).
+>• **BERLIOZ**:**➔Sinfonica** - **S**infonie: H 48 **[E. Inbal, Radio-Sinfonie-Orchester Frankfurt, 1987] (S)**.                                                                                              
+**➔Sacra**: **R**equiem: H 75 **[E. Ormandy, Philadelphia Orchestra, 1964] (S)**.
 
-⬆️ [Vai all'inizio](
+>• **BRAHMS**:**➔Sinfonica** - **S**infonie: Op. 68, 73, 90, 98 **[J. van Zweden, 2010] (S)**.                     
+**➔Pianoforte solo** - **D**anze ungheresi: versione per orchestra **[I. Fischer, Budapest Festival Orchestra, 1999] (S)**.
+
+• **BUXTEHUDE**:➔Vocale - Cantata: BuxWV 64 **[A. Deller, Deller Consort, 1971] (S)**.
+
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/edit/master/LIST.md)
 
 C
 • CHOPIN:➔Pianoforte solo - Ballate: Op. 23, 38, 47, 52 [G. Ohlsson, 1995] (S); Notturni: Op. 9, 15, 27, 32, 37, 48, 55, 62, 72, KK IV/8, Op.posth no. 20 [G. Ohlsson, 1994] (S); Preludi: Op.28, Op.45, KK IVb/7 [M. Argerich, 1975] (S); Polacche: Op. 26, 40, 44, 53, 61, 71, KK IIa/1, IVa/1-2-3-5-8 [G. Ohlsson, 1993-5] (S); Rondò: Op. 1, 5, 14, 16, 73 (a&b) [L. Zilberstein, 1999/G. Ohlsson,1995,7/M. Pletnev, 1996/H. Bung, K. Bauer, 1958] (S); Scherzi: Op. 20, 31, 39, 54 [G. Ohlsson, 1992] (S); Sonate per pianoforte: Op. 4, 35, 58 [G. Ohlsson, 1990] (S); Studi: Op. 10, 25, Nuovi studi nn. 1, 2, 3 [G. Ohlsson, 1996] (S); Valzer: Op. 18, 34, 42, 64, 69, 70, KK IVa nn. 12, 13, 14, 15, KK IVb nn. 10, 11 [G. Ohlsson, 1995] (S).
