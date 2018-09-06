@@ -28,8 +28,8 @@
 
 >• **BERG**:➔**Sinfonica** - **P**er orchestra: 3 pezzi per orchestra Op. 6, Concerto per violino ed orchestra, Passacaglia, Wein, Weib und Gesang! (valzer op. 333 di Strauss II trascritto da Berg per ensemble) **[M. Venzago, Gothenburg Symphony Orchestra, 2004-7] (S)**.
 
->• **BERIO**:➔**Sinfonica** - Per orchestra: **S**equenze: Sequenza I per flauto, Sequenza II per arpa, Sequenza III per voce femminile, Sequenza IV per pianoforte, Sequenza V per trombone, Sequenza VI per viola, Sequenza VII per oboe, Sequenza VIIb per sassofono soprano, Sequenza VIII per violino, Sequenza IXa per clarinetto, Sequenza IXb per sassofono contralto, Sequenza IXc per per clarinetto basso, Sequenza X per tromba e risonanze di pianoforte, Sequenza XI per chitarra, Sequenza XII per fagotto,  Sequenza XIII per fisarmonica, Sequenza XIV per violoncello, Sequenza XIVb per contrabbasso.                                                                                          
-**➔Strumento solista**: Chanson pour Pierre Boulez per violoncello, Comma per clarinetto in Mib, Fa-Si per organo, Gesti per flauto dolce, Gute nacht per tromba, Les mots sont allés per violoncello, Lied per clarinetto, Psy per contrabbasso, Rounds per clavicembalo **[mode®, 2006]**. 
+>• **BERIO**:➔**Sinfonica** - Per orchestra: **S**equenze: [Sequenza I per flauto](https://t.me/AllClassicalMusic/2797), [Sequenza II per arpa](https://t.me/AllClassicalMusic/2799), [Sequenza III per voce femminile](https://t.me/AllClassicalMusic/2801), [Sequenza IV per pianoforte](https://t.me/AllClassicalMusic/2803), [Sequenza V per trombone](https://t.me/AllClassicalMusic/2805), [Sequenza VI per viola](https://t.me/AllClassicalMusic/2807), [Sequenza VII per oboe](https://t.me/AllClassicalMusic/2809), [Sequenza VIIb per sassofono soprano](https://t.me/AllClassicalMusic/2829), [Sequenza VIII per violino](https://t.me/AllClassicalMusic/2812, [Sequenza IXa per clarinetto](https://t.me/AllClassicalMusic/2814), [Sequenza IXb per sassofono contralto](https://t.me/AllClassicalMusic/2816), [Sequenza IXc per per clarinetto basso](https://t.me/AllClassicalMusic/2830), [Sequenza X per tromba e risonanze di pianoforte](https://t.me/AllClassicalMusic/2817), [Sequenza XI per chitarra](https://t.me/AllClassicalMusic/2820), [Sequenza XII per fagotto](https://t.me/AllClassicalMusic/2823),  [Sequenza XIII per fisarmonica](https://t.me/AllClassicalMusic/2825), [Sequenza XIV per violoncello](https://t.me/AllClassicalMusic/2827), [Sequenza XIVb per contrabbasso](https://t.me/AllClassicalMusic/2833).                                                                                          
+**➔Strumento solista**: [Chanson pour Pierre Boulez per violoncello](https://t.me/AllClassicalMusic/2841), [Comma per clarinetto in Mib](https://t.me/AllClassicalMusic/2839), [Fa-Si per organo](https://t.me/AllClassicalMusic/2836), [Gesti per flauto dolce](https://t.me/AllClassicalMusic/2835), [Gute nacht per tromba](https://t.me/AllClassicalMusic/2842), [Les mots sont allés per violoncello](https://t.me/AllClassicalMusic/2837), [Lied per clarinetto](https://t.me/AllClassicalMusic/2838), [Psy per contrabbasso](https://t.me/AllClassicalMusic/2840), [Rounds per clavicembalo](https://t.me/AllClassicalMusic/2834) **[mode®, 2006]**. 
 
 >• **BERLIOZ**:**➔Sinfonica** - **S**infonie: H 48 **[E. Inbal, Radio-Sinfonie-Orchester Frankfurt, 1987] (S)**.                                                                                              
 **➔Sacra**: **R**equiem: H 75 **[E. Ormandy, Philadelphia Orchestra, 1964] (S)**.
@@ -52,8 +52,10 @@ D
 • DUSSEK:➔Da Camera - Duetti: per arpa e pianoforte Op. 38/C 170, Op. 74/C 234, Op. 69 n. 2/C 239, Op. 73/C 243 [J. Ogg, E. Witsenburg, T. van der Zwart, E. Wieringa, 1998] (S).
 ⬆️ Vai all'inizio
 
-G
-• GRIEG:➔Sinfonica - Suites Orchestrali: Holberg Suite Op. 40, Peer Gynt Suite nn. 1 Op. 46, 2 Op. 55 [V. Altschuler, Academic symphony Orchestra of St.Petersburg Philharmony, 1997] (S). 
+**G**
+
+>• **GRIEG**:**➔Sinfonica** - **S**uites Orchestrali: Holberg Suite [Op. 40](https://t.me/AllClassicalMusic/2853), Peer Gynt Suite nn. 1 [Op. 46](https://t.me/AllClassicalMusic/2846), 2 [Op. 55](https://t.me/AllClassicalMusic/2850) **[V. Altschuler, Academic symphony Orchestra of St.Petersburg Philharmony, 1997] (S)**. 
+
 H
 • HAYDN:➔Sinfonica - Sinfonie: Hob I/1, 2, 3, 4, 5, 6, 7, 8. Concerti: per 2 Lire organizzate Hob VIIh/1-5 [S. Lautenbacher, H. Ruf, 1970] (S); per violino Hob VIIa/1, 2, 3, 4, per violoncello Hob VIIb/1, 2.
 ⬆️ Vai all'inizio
