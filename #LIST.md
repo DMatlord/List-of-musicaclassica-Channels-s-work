@@ -28,8 +28,8 @@
 
 >• **BERG**:➔**Sinfonica** - **P**er orchestra: 3 pezzi per orchestra Op. 6, Concerto per violino ed orchestra, Passacaglia, Wein, Weib und Gesang! (valzer op. 333 di Strauss II trascritto da Berg per ensemble) **[M. Venzago, Gothenburg Symphony Orchestra, 2004-7] (S)**.
 
->• **BERIO**:➔**Sinfonica** - Per orchestra: **S**equenze: [Sequenza I per flauto](https://t.me/AllClassicalMusic/2797), [Sequenza II per arpa](https://t.me/AllClassicalMusic/2799), [Sequenza III per voce femminile](https://t.me/AllClassicalMusic/2801), [Sequenza IV per pianoforte](https://t.me/AllClassicalMusic/2803), [Sequenza V per trombone](https://t.me/AllClassicalMusic/2805), [Sequenza VI per viola](https://t.me/AllClassicalMusic/2807), [Sequenza VII per oboe](https://t.me/AllClassicalMusic/2809), [Sequenza VIIb per sassofono soprano](https://t.me/AllClassicalMusic/2829), [Sequenza VIII per violino](https://t.me/AllClassicalMusic/2812), [Sequenza IXa per clarinetto](https://t.me/AllClassicalMusic/2814), [Sequenza IXb per sassofono contralto](https://t.me/AllClassicalMusic/2816), [Sequenza IXc per per clarinetto basso](https://t.me/AllClassicalMusic/2830), [Sequenza X per tromba e risonanze di pianoforte](https://t.me/AllClassicalMusic/2817), [Sequenza XI per chitarra](https://t.me/AllClassicalMusic/2820), [Sequenza XII per fagotto](https://t.me/AllClassicalMusic/2823),  [Sequenza XIII per fisarmonica](https://t.me/AllClassicalMusic/2825), [Sequenza XIV per violoncello](https://t.me/AllClassicalMusic/2827), [Sequenza XIVb per contrabbasso](https://t.me/AllClassicalMusic/2833).                                                                                          
-**➔Strumento solista**: [Chanson pour Pierre Boulez per violoncello](https://t.me/AllClassicalMusic/2841), [Comma per clarinetto in Mib](https://t.me/AllClassicalMusic/2839), [Fa-Si per organo](https://t.me/AllClassicalMusic/2836), [Gesti per flauto dolce](https://t.me/AllClassicalMusic/2835), [Gute nacht per tromba](https://t.me/AllClassicalMusic/2842), [Les mots sont allés per violoncello](https://t.me/AllClassicalMusic/2837), [Lied per clarinetto](https://t.me/AllClassicalMusic/2838), [Psy per contrabbasso](https://t.me/AllClassicalMusic/2840), [Rounds per clavicembalo](https://t.me/AllClassicalMusic/2834) **[mode®, 2006]**. 
+>• **BERIO**:➔**Sinfonica** - Per orchestra: **S**equenze: [Sequenza I per **flauto**](https://t.me/AllClassicalMusic/2797), [Sequenza II per **arpa**](https://t.me/AllClassicalMusic/2799), [Sequenza III per **voce femminile**](https://t.me/AllClassicalMusic/2801), [Sequenza IV per **pianoforte**](https://t.me/AllClassicalMusic/2803), [Sequenza V per **trombone**](https://t.me/AllClassicalMusic/2805), [Sequenza VI per **viola**](https://t.me/AllClassicalMusic/2807), [Sequenza VII per **oboe**](https://t.me/AllClassicalMusic/2809), [Sequenza VIIb per **sassofono soprano**](https://t.me/AllClassicalMusic/2829), [Sequenza VIII per **violino**](https://t.me/AllClassicalMusic/2812), [Sequenza IXa per **clarinetto**](https://t.me/AllClassicalMusic/2814), [Sequenza IXb per **sassofono contralto**](https://t.me/AllClassicalMusic/2816), [Sequenza IXc per per **clarinetto basso**](https://t.me/AllClassicalMusic/2830), [Sequenza X per **tromba** e risonanze di **pianoforte**](https://t.me/AllClassicalMusic/2817), [Sequenza XI per **chitarra**](https://t.me/AllClassicalMusic/2820), [Sequenza XII per **fagotto**](https://t.me/AllClassicalMusic/2823),  [Sequenza XIII per **fisarmonica**](https://t.me/AllClassicalMusic/2825), [Sequenza XIV per **violoncello**](https://t.me/AllClassicalMusic/2827), [Sequenza XIVb per **contrabbasso**](https://t.me/AllClassicalMusic/2833).                                                                                          
+**➔Strumento solista**: [Chanson pour Pierre Boulez per **violoncello**](https://t.me/AllClassicalMusic/2841), [Comma per **clarinetto in Mib**](https://t.me/AllClassicalMusic/2839), [Fa-Si per **organo**](https://t.me/AllClassicalMusic/2836), [Gesti per **flauto dolce**](https://t.me/AllClassicalMusic/2835), [Gute nacht per **tromba**](https://t.me/AllClassicalMusic/2842), [Les mots sont allés per **violoncello**](https://t.me/AllClassicalMusic/2837), [Lied per **clarinetto**](https://t.me/AllClassicalMusic/2838), [Psy per **contrabbasso**](https://t.me/AllClassicalMusic/2840), [Rounds per **clavicembalo**](https://t.me/AllClassicalMusic/2834) **[mode®, 2006]**. 
 
 >• **BERLIOZ**:**➔Sinfonica** - **S**infonie: H 48 **[E. Inbal, Radio-Sinfonie-Orchester Frankfurt, 1987] (S)**.                                                                                              
 **➔Sacra**: **R**equiem: H 75 **[E. Ormandy, Philadelphia Orchestra, 1964] (S)**.
@@ -39,26 +39,37 @@
 
 >• **BUXTEHUDE**:**➔Vocale** - **C**antata: BuxWV 64 **[A. Deller, Deller Consort, 1971] (S)**.
 
-⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/edit/master/LIST.md)
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
-C
-• CHOPIN:➔Pianoforte solo - Ballate: Op. 23, 38, 47, 52 [G. Ohlsson, 1995] (S); Notturni: Op. 9, 15, 27, 32, 37, 48, 55, 62, 72, KK IV/8, Op.posth no. 20 [G. Ohlsson, 1994] (S); Preludi: Op.28, Op.45, KK IVb/7 [M. Argerich, 1975] (S); Polacche: Op. 26, 40, 44, 53, 61, 71, KK IIa/1, IVa/1-2-3-5-8 [G. Ohlsson, 1993-5] (S); Rondò: Op. 1, 5, 14, 16, 73 (a&b) [L. Zilberstein, 1999/G. Ohlsson,1995,7/M. Pletnev, 1996/H. Bung, K. Bauer, 1958] (S); Scherzi: Op. 20, 31, 39, 54 [G. Ohlsson, 1992] (S); Sonate per pianoforte: Op. 4, 35, 58 [G. Ohlsson, 1990] (S); Studi: Op. 10, 25, Nuovi studi nn. 1, 2, 3 [G. Ohlsson, 1996] (S); Valzer: Op. 18, 34, 42, 64, 69, 70, KK IVa nn. 12, 13, 14, 15, KK IVb nn. 10, 11 [G. Ohlsson, 1995] (S).
-• CORELLI:➔Da Camera - Concerti: Op. 6 nn. 9-12 [N. Marriner, A. of St. Martin in-the- Fields, 1974-1995] (S); Sonate: per violino Op. 5 nn. 1-6 [O. Dantone, Accademia bizantina, 2005] (S).                                                                                                     ➔Da Chiesa - Concerti: Op. 6 nn. 1-8 [N. Marriner, A. of St. Martin in-the- Fields, 1974-1995] (S); Sonate: per violino Op. 5 nn. 7-12 [O. Dantone, Accademia bizantina, 2005] (S).
-⬆️ Vai all'inizio
+**C**
 
-D
-• DEBUSSY:➔Pianoforte solo - Preludi: Libri nn. 1-2 [A. B. Michelangeli, 1978] (S), Images I-II, Children's corner, Suite bergamasque, L'isle joyeus [S-J. Cho, 2015] (H).
-• DVOŘÁK:➔Sacra - Requiem B. 169 [Antoni Wit, Warsaw Philharmonic Orchestra and Choir, 2012] (S).                                                                                          ➔Sinfonica - Sinfonie: B. 9, 12, 34, 41, 54, 112, 141, 163, 178 [J. Bělohlávek, Czech Philharmonic, G. Ohlsson, F. P. Zimmermann, A. Weilerstein, 2014] (H); Concerti: per pianoforte B 63, per violino B 108*, per violoncello B 191 [J. Bělohlávek, Czech Philharmonic, G. Ohlsson, F. P. Zimmermann*|(I. Ženaty*, 1992), A. Weilerstein, 2014] (H).
-• DUSSEK:➔Da Camera - Duetti: per arpa e pianoforte Op. 38/C 170, Op. 74/C 234, Op. 69 n. 2/C 239, Op. 73/C 243 [J. Ogg, E. Witsenburg, T. van der Zwart, E. Wieringa, 1998] (S).
-⬆️ Vai all'inizio
+>**• CHOPIN**:**➔Pianoforte solo** - **B**allate: Op. 23, 38, 47, 52 **[G. Ohlsson, 1995] (S)**; **N**otturni: Op. 9, 15, 27, 32, 37, 48, 55, 62, 72, KK IV/8, Op.posth no. 20 **[G. Ohlsson, 1994] (S)**; **P**reludi: Op.28, Op.45, KK IVb/7 **[M. Argerich, 1975] (S)**; **P**olacche: Op. 26, 40, 44, 53, 61, 71, KK IIa/1, IVa/1-2-3-5-8 **[G. Ohlsson, 1993-5] (S)**; **R**ondò: Op. 1, 5, 14, 16, 73 (a&b) **[L. Zilberstein, 1999/G. Ohlsson,1995,7/M. Pletnev, 1996/H. Bung, K. Bauer, 1958] (S)**; **S**cherzi: Op. 20, 31, 39, 54 **[G. Ohlsson, 1992] (S)**; **S**onate per pianoforte: Op. 4, 35, 58 **[G. Ohlsson, 1990] (S)**; **S**tudi: Op. 10, 25, Nuovi studi nn. 1, 2, 3 **[G. Ohlsson, 1996] (S)**; **V**alzer: Op. 18, 34, 42, 64, 69, 70, KK IVa nn. 12, 13, 14, 15, KK IVb nn. 10, 11 **[G. Ohlsson, 1995] (S)**.
+
+>**• CORELLI**:**➔Da Camera** - **C**oncerti: Op. 6 nn. 9-12 **[N. Marriner, A. of St. Martin in-the- Fields, 1974-1995] (S)**; **S**onate: per **violino** Op. 5 nn. 1-6 **[O. Dantone, Accademia bizantina, 2005] (S)**.                                                                                                    
+**➔Da Chiesa** - **C**oncerti: Op. 6 nn. 1-8 **[N. Marriner, A. of St. Martin in-the- Fields, 1974-1995] (S)**; **S**onate: per **violino** Op. 5 nn. 7-12 **[O. Dantone, Accademia bizantina, 2005] (S)**.
+
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
+
+**D**
+
+>**• DEBUSSY**:**➔Pianoforte solo** - **P**reludi: Libri nn. 1-2 **[A. B. Michelangeli, 1978] (S)**, Images I-II, Children's corner, Suite bergamasque, L'isle joyeus **[S-J. Cho, 2015] (H)**.
+
+>**• DVOŘÁK**:**➔Sacra** - **R**equiem: B. 169 **[Antoni Wit, Warsaw Philharmonic Orchestra and Choir, 2012] (S)**.                                                                                          
+**➔Sinfonica** - **S**infonie: B. 9, 12, 34, 41, 54, 112, 141, 163, 178 **[J. Bělohlávek, Czech Philharmonic, G. Ohlsson, F. P. Zimmermann, A. Weilerstein, 2014] (H)**; Concerti: per **pianoforte** B 63, per violino B 108*, per **violoncello** B 191 **[J. Bělohlávek, Czech Philharmonic, G. Ohlsson, F. P. Zimmermann*|(I. Ženaty*, 1992), A. Weilerstein, 2014] (H)**.
+
+>**• DUSSEK**:**➔Da Camera** - **D**uetti: per **arpa** e **pianoforte** Op. 38/C 170, Op. 74/C 234, Op. 69 n. 2/C 239, Op. 73/C 243 **[J. Ogg, E. Witsenburg, T. van der Zwart, E. Wieringa, 1998] (S)**.
+
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
 **G**
 
 >• **GRIEG**:**➔Sinfonica** - **S**uites Orchestrali: Holberg Suite [Op. 40](https://t.me/AllClassicalMusic/2853), Peer Gynt Suite nn. 1 [Op. 46](https://t.me/AllClassicalMusic/2846), 2 [Op. 55](https://t.me/AllClassicalMusic/2850) **[V. Altschuler, Academic symphony Orchestra of St.Petersburg Philharmony, 1997] (S)**. 
 
-H
-• HAYDN:➔Sinfonica - Sinfonie: Hob I/1, 2, 3, 4, 5, 6, 7, 8. Concerti: per 2 Lire organizzate Hob VIIh/1-5 [S. Lautenbacher, H. Ruf, 1970] (S); per violino Hob VIIa/1, 2, 3, 4, per violoncello Hob VIIb/1, 2.
-⬆️ Vai all'inizio
+**H**
+
+>**• HAYDN**:**➔Sinfonica** - **S**infonie: Hob I/1, 2, 3, 4, 5, 6, 7, 8. **C**oncerti: per 2 **Lire** organizzate Hob VIIh/1-5 **[S. Lautenbacher, H. Ruf, 1970] (S)**; per **violino** Hob VIIa/1, 2, 3, 4, per **violoncello** Hob VIIb/1, 2.
+
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
 L
 • LISTZ:➔Pianoforte solo - Studi: S. 136 [L. Howard, 1992]; Temi nazionali: Ungheresi S. 244 [M. Campanella, 1974] (S).                                                                 ➔Sinfonica - Poemi sinfonici: S. 95-107 [M. Haselböck, Orchester Wiener, 2013] (S).
