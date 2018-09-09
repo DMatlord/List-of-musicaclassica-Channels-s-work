@@ -71,55 +71,105 @@
 
 ⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
-L
-• LISTZ:➔Pianoforte solo - Studi: S. 136 [L. Howard, 1992]; Temi nazionali: Ungheresi S. 244 [M. Campanella, 1974] (S).                                                                 ➔Sinfonica - Poemi sinfonici: S. 95-107 [M. Haselböck, Orchester Wiener, 2013] (S).
-• LOCATELLI:➔Sinfonica - Concerti: per violino Op. 3 nn. 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12 [Nicholas Kraemer, Raglan Baroque Players, Elizabeth WallFisch, 1992-3] (S).
-⬆️ Vai all'inizio
+**L**
 
-M
-• MAHLER:➔Sinfonica - Das Lied von der Erde (Il canto della terra), Sinfonia per contralto, tenore e orchestra [O. Klemperer, Philharmonia Orchestra, C. Ludwig, F. Wunderlich, 1967] (S).
-• MÉHUL:➔Sinfonica - Overture: Le Trésor supposé, La Chasse Du Jeune Henri; Sinfonie: nn. 1, 2, 3, 4 [M. Swierczewski, Orchestra of the Gulbenkian Foundation, A. Lima, 1988] (S).
-• MENDELSSOHN:➔A Quattro mani - Preludi e fughe: Op. 35 nn.1-6/MWV U 116-U 66, U 129-U 105, U 131-U 191, U 122-U 108, U 126-U 106, U 135-U 128 (S);                            ➔Da Camera - Quartetti: Op. 12/MWV R 25, Op. 13/MWV R 22.                          ➔Organo solo - Sonate Op.65 nn. 1, 2, 3, 4, 5, 6 [K. Volostnov, 2006] (S).                                                                                                   ➔Sinfonica - Sinfonie: per orchestra Op. 11/MWV N 13, Op. 52/MWV N 18, Op. 90/MWV N 16, Op. 107/MWV N 15 [W. Sawallish, New Philharmonia Orchestra, 1967] (S).
-• MILHAUD:➔Balletti: Op. 56 (Le Boeuf sur le toit), 81 (La création du monde). ➔Sinfonica - Concerti: per arpa Op. 323 [K. Nagano, Orchestre de l'opéra de Lyon, F. Cambreling, 1992] (S).
-• MOZART:➔Sinfonica - Concerti: per corno K 412 (II° mvt. K 512 arr. Süssmayr), 417, 447, 495 [H. von Karajan, Philharmonia Orchestra, D. Brain, 1953] (S), per fagotto K 622, per flauto ed arpa K 299; Sinfonie: K 16, 19, 22 [N. Marriner, S. Academy in the fields, 2006] (S); Sonate: per clavicembalo(c)/pianoforte(p) e violino K 10, 14, 30, 301, 304, 379, 481 [Alina Ibragimova, 2016] (S) | K 6, 7, 8, 9, 10, 11, 12, 13, 14, 15, K 26, 27, 28, 29, 30, 31, K 296, 301, 302, 303, 304, 305, 306, K 372, 374a, 374b, 376, 377, 378, 379, 380, 396, K 402, 403, 404, K 454, K 481, K 526, K 547 [G. Cooper, R. Podger, 2004-2009] (S).
-⬆️ Vai all'inizio
+>**• LISTZ**:**➔Pianoforte solo** - **S**tudi: S. 136 **[L. Howard, 1992] (S)**; **T**emi nazionali: Ungheresi S. 244 **[M. Campanella, 1974] (S).**                                                                 
+**➔Sinfonica** - **P**oemi sinfonici: S. 95-107 [M. Haselböck, Orchester Wiener, 2013] (S).
 
-P
-• PAGANINI:➔Da Camera: Capricci: Op. 1 [I. Perlman, 1975] | nn. 13, 20, 24 [F. Kreisler arr., P. Quint, D. Cogan, 2008] (S).                                                    ➔Sinfonica - Concerti: per violino Op. 6, 7|7 n. 2 (F. Kreisler arr.), MS 50, 60, 78, 75 [M. Quarta, Orchestra del teatro Carlo Felice, 1999] (S); Moto perpetuo Op. 11/MS 72 [F. K a, P. Q, D. G, 2008] (S); Variazioni: Op. 8/MS 19, Op. 12/MS 22 [F. K a, P. Q, D. G, 2008] (S).
-• PERGOLESI:➔Sacra - StabatMater; Salmi: Confitebor tibi Domine, Laudate pueri Dominum [Fasolis, I Barocchisti 2013] (S).
-• PONCE:➔Chitarra Sola - 3 Canzoni popolari messicane; Estrellita, Matinal, Postludio; Preludi: 24 preludi, Preludio e Balletto; Sonate: mexicana, III, classica, romantica, meridionale; Scherzino messicano; Suite: Antigua, in A minor; Tema variato e Finale; Trépico, Valzer; Variazioni su un tema di Cabezón, Vespertina.                           ➔Sinfonica - Concerti: per chitarra e clavicembalo, per chitarra ed orchestra [G. Abiton, B. Martin, Ensemble Orchestral Stringendo J. Thorel, 1996-1998] (S).
-• PROKOFIEV:➔Sinfonica - Concerti: per pianoforte nn. 1-5/Op. 10, 16, 26, 53, 55 [V. Gergiev, A. Toradze, Kirov Orchestra, 1995] (S).
-• PURCELL:➔Sinfonica - Suite: Z 660-669 [P.-Jan Belder, 2007] (S); Trio Sonate a 3 parti Z 790-801 [P. Beznosiuk and R. Podger, C. Coin, C. Hogwood, 1995] (S). 
-R
-• RACHMANINOFF: ➔Da Camera: Trii elegiachi nn. 1-3 [Borodin Trio, 1984] (S). ➔Pianoforte solo - Preludi: Op. 23 [S. Rodriguez, 1993] (S); Sonate: Op. 28, 36; 3 Notturni.                                                                                                          ➔Sinfonica - Concerti per piano: Op. 1, 18, 30, 40, 43 [J. Horenstein, Royal Philharmonic Orchestra, Earl Wild, 1965] (S); Danza Sinfonica Op.45-45a [I. Thorson, J. Thurber, 1985/E. Oue, Minnesota Orchestra, 2001] (S)-(H); Sinfonie: Op. 13, 27, 44.
-• REGONDI:➔Chitarra Sola - Arie varie Op. 21, 22, su ''I Capuleti e Montecchi'' di Bellini; Fantasia su ''Don Giovanni'' di Mozart, Foglio d'album; Introduzione e Capriccio Op. 23; Notturno Op. 19 'Rêverie'; Rondò a capriccio Op. 20 Fête villageoise; Studi [Alberto Mesirca, 2013] (S).
-• RESPIGHI:➔Sinfonica - Poemi Sinfonici: P 157 ('Feste Romane') [G. Sinopoli, New York Philharmonic, 1993] (S).
-• RODRIGO:➔Sinfonica: Concerti per chitarra: Concierto de Aranjuez, Fantasia para un Gentilhombre [G. Navarro, Philharmonia Orchestra/English Chamber Orchestra, Narciso Yepes, 1979/1978] (S).
-⬆️ Vai all'inizio
+>**• LOCATELLI**:**➔Sinfonica** - **C**oncerti: per violino Op. 3 nn. 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12 **[Nicholas Kraemer, Raglan Baroque Players, Elizabeth WallFisch, 1992-3] (S)**.
 
-S
-• SAINT-SAËNS:➔Sinfonica - Allegro Op. 43; Violino e orchestra: Concerti per violino Op. 20, 58, 61; Introduzione e rondò capriccioso Op. 28; Romanze; Le Déluge Op. 45; Sei studi per pianoforte Op. 52 (Trascrizione per orchestra di Eugène Ysaÿe); Havanaise Op. 83; Marce da concerto Op. 62; Capriccio Op. 122; (-La muse et le poète-); Violoncello e orchestra: Concerti per violoncello Op. 33, 119; Romanza Op. 36, 37, 48; (-La muse et le poète-) [C. Arming, Orchestre Philharmonique Royal de Liège, 2013] (H); Sinfonie: Op. 78 [H. von Karajan, 1982] (S); Suite per violoncello e orchestra Op. 16b [C. Arming, Orchestre Philharmonique Royal de Liège, 2013] (H).
-• SCHOENBERG:➔Sinfonica - Concerto per violino Op. 36 [E-P salomen, Swedish Radio Symphony Orchestra, H Hahn, 2007] (S).
-• SCHUBERT:➔Da Camera - Trii: D 28, 897, 898, 929.                                         ➔Sacra - Messe: D 950 [N. Harnoncourt, Chamber Orchestra of Europe, 1997] (S). ➔Sinfonica - Sinfonie: D 82, 125 [Y. Menuhin, Menuhin Festival Orchestra, 1999], 485, 759 [S. G. Solti, Vienna Philharmonic Orchestra, 1985] (S). 
-• SCHUMANN:➔Sinfonica - Sinfonie: 38, 61, 97, 120 [R. Ticciati, Scottish Chamber Orchestra, 2013] (H).                                                                                       ➔Pianoforte solo - Op. 1, 2, 3, Studi Sinfonici Op. 13 [A. Schiff, 1995] (S).
-• SHOSTAKOVICH:➔Da Camera - Quartetti: Op. 49, 68, 73, 83, 92, 101, 108, 110, 117, 118, 122, 133, 138, 142, 144 [Fitzwilliam string quartet, 1998] (S).
-• SIBELIUS:➔Sinfonica - Concerti: per violino Op. 47; Poemi Sinfonici: Op. 26 (Finlandia), 112 (Tapiola) [H. von Karajan, C. Ferras, BerlinerPhilarharmonic, 1965] (S); Sinfonie: Op. 39, 43, 52, 63, 82, 104, 1o5 [L. Bernstein, New York Philharmonic, 1961-67] (S).
-• SMETANA:➔Sinfonica - Poemi sinfonici: Má vlast > Vyšehrad (Il castello alto), Vltava (Moldava), Šárka, Z českých luhů a hájů (dai prati e dai boschi della Boemia), Tábor, Blaník [R. Kubelik, 1971] (S).
-• SOR:➔Chitarra Sola - Divertimenti: Op. 23; Piccoli pezzi: Op. 24; Sonate: Op. 22, 25 [A. Holzman, 1994] (S).
-• STRAUSS (Richard):➔Sinfonica - Poemi Sinfonici: Op. 20, 40 [G. Sinopoli, Staatskepelle Dresden, 1991] (S).
-• STRAVINSKJI:➔Balletti: La sagra della primavera [S. S. Rattle, Berliner Philarmoniker, 2013] (S).
-⬆️ Vai all'inizio
+**M**
+
+>**• MAHLER**:**➔Sinfonica** - **S**infonie: Das Lied von der Erde (Il canto della terra), Sinfonia per contralto, tenore e orchestra **[O. Klemperer, Philharmonia Orchestra, C. Ludwig, F. Wunderlich, 1967] (S**).
+
+>**• MÉHUL**:**➔Sinfonica** - **O**verture: Le Trésor supposé, La Chasse Du Jeune Henri; Sinfonie: nn. 1, 2, 3, 4 **[M. Swierczewski, Orchestra of the Gulbenkian Foundation, A. Lima, 1988] (S)**.
+
+>**• MENDELSSOHN**:**➔A Quattro mani** - **P**reludi e fughe: Op. 35 nn.1-6/MWV U 116-U 66, U 129-U 105, U 131-U 191, U 122-U 108, U 126-U 106, U 135-U 128 (S);                            
+**➔Da Camera** - Quartetti: Op. 12/MWV R 25, Op. 13/MWV R 22.                         
+**➔Organo solo** - Sonate Op.65 nn. 1, 2, 3, 4, 5, 6 **[K. Volostnov, 2006] (S)**.                                                                                                   
+**➔Sinfonica** - **S**infonie: per orchestra Op. 11/MWV N 13, Op. 52/MWV N 18, Op. 90/MWV N 16, Op. 107/MWV N 15 **[W. Sawallish, New Philharmonia Orchestra, 1967] (S)**.
+
+>**• MILHAUD**:**➔Balletti**: Op. 56 (Le Boeuf sur le toit), 81 (La création du monde).                  
+**➔Sinfonica** - **C**oncerti: per arpa Op. 323 **[K. Nagano, Orchestre de l'opéra de Lyon, F. Cambreling, 1992] (S)**.
+
+>**• MOZART**:**➔Sinfonica** - **C**oncerti: per corno K 412 (II° mvt. K 512 arr. Süssmayr), 417, 447, 495 **[H. von Karajan, Philharmonia Orchestra, D. Brain, 1953] (S)**, per fagotto K 622, per flauto ed arpa K 299; Sinfonie: K 16, 19, 22 **[N. Marriner, S. Academy in the fields, 2006] (S)**; Sonate: per clavicembalo(c)/pianoforte(p) e violino K 10, 14, 30, 301, 304, 379, 481 **[Alina Ibragimova, 2016] (S)** | K 6, 7, 8, 9, 10, 11, 12, 13, 14, 15, K 26, 27, 28, 29, 30, 31, K 296, 301, 302, 303, 304, 305, 306, K 372, 374a, 374b, 376, 377, 378, 379, 380, 396, K 402, 403, 404, K 454, K 481, K 526, K 547 **[G. Cooper, R. Podger, 2004-2009] (S)**.
+
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
+
+**P**
+
+>**• PAGANINI**:**➔Da Camera**: **C**apricci: Op. 1 **[I. Perlman, 1975]** | nn. 13, 20, 24 **[F. Kreisler arr., P. Quint, D. Cogan, 2008] (S)**.                                                    
+**➔Sinfonica** - **C**oncerti: per violino Op. 6, 7|7 n. 2 (F. Kreisler arr.), MS 50, 60, 78, 75 **[M. Quarta, Orchestra del teatro Carlo Felice, 1999] (S)**; Moto perpetuo Op. 11/MS 72 **[F. K a, P. Q, D. G, 2008] (S)**; Variazioni: Op. 8/MS 19, Op. 12/MS 22 **[F. K a, P. Q, D. G, 2008] (S)**.
+
+>**• PERGOLESI**:**➔Sacra** - StabatMater; Salmi: Confitebor tibi Domine, Laudate pueri Dominum **[Fasolis, I Barocchisti 2013] (S)**.
+
+>**• PONCE**:**➔Chitarra Sola** - 3 Canzoni popolari messicane; Estrellita, Matinal, Postludio; Preludi: 24 preludi, Preludio e Balletto; Sonate: mexicana, III, classica, romantica, meridionale; Scherzino messicano; Suite: Antigua, in A minor; Tema variato e Finale; Trépico, Valzer; Variazioni su un tema di Cabezón, Vespertina.                          
+**➔Sinfonica** - **C**oncerti: per chitarra e clavicembalo, per chitarra ed orchestra **[G. Abiton, B. Martin, Ensemble Orchestral Stringendo J. Thorel, 1996-1998] (S)**.
+
+>**• PROKOFIEV**:**➔Sinfonica** - **C**oncerti: per pianoforte nn. 1-5/Op. 10, 16, 26, 53, 55 **[V. Gergiev, A. Toradze, Kirov Orchestra, 1995] (S)**.
+
+>**• PURCELL**:**➔Sinfonica** - **S**uite: Z 660-669 **[P.-Jan Belder, 2007] (S)**; Trio Sonate a 3 parti Z 790-801 **[P. Beznosiuk and R. Podger, C. Coin, C. Hogwood, 1995] (S)**. 
+
+**R**
+
+>**• RACHMANINOFF**: **➔Da Camera**: Trii elegiachi nn. 1-3 **[Borodin Trio, 1984] (S)**.                 
+**➔Pianoforte solo** - **P**reludi: Op. 23 **[S. Rodriguez, 1993] (S)**; **S**onate: Op. 28, 36; 3 Notturni.                                                                                                                       
+**➔Sinfonica** - **C**oncerti per piano: Op. 1, 18, 30, 40, 43 **[J. Horenstein, Royal Philharmonic Orchestra, Earl Wild, 1965] (S)**; Danza Sinfonica Op.45-45a **[I. Thorson, J. Thurber, 1985/E. Oue, Minnesota Orchestra, 2001] (S)-(H)**; Sinfonie: Op. 13, 27, 44.
+
+>**• REGONDI**:**➔Chitarra Sola** - Arie varie Op. 21, 22, su ''I Capuleti e Montecchi'' di Bellini; Fantasia su ''Don Giovanni'' di Mozart, Foglio d'album; Introduzione e Capriccio Op. 23; Notturno Op. 19 'Rêverie'; Rondò a capriccio Op. 20 Fête villageoise; Studi **[Alberto Mesirca, 2013] (S)**.
+
+>**• RESPIGHI**:**➔Sinfonica** - **P**oemi Sinfonici: P 157 ('Feste Romane') **[G. Sinopoli, New York Philharmonic, 1993] (S)**.
+
+>**• RODRIGO**:**➔Sinfonica**: **C**oncerti per chitarra: Concierto de Aranjuez, Fantasia para un Gentilhombre **[G. Navarro, Philharmonia Orchestra/English Chamber Orchestra, Narciso Yepes, 1979/1978] (S)**.
+
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
+
+**S**
+
+>**• SAINT-SAËNS**:**➔Sinfonica** - Allegro Op. 43; Violino e orchestra: Concerti per violino Op. 20, 58, 61; Introduzione e rondò capriccioso Op. 28; Romanze; Le Déluge Op. 45; Sei studi per pianoforte Op. 52 (Trascrizione per orchestra di Eugène Ysaÿe); Havanaise Op. 83; Marce da concerto Op. 62; Capriccio Op. 122; (-La muse et le poète-); Violoncello e orchestra: Concerti per violoncello Op. 33, 119; Romanza Op. 36, 37, 48; (-La muse et le poète-) **[C. Arming, Orchestre Philharmonique Royal de Liège, 2013] (H)**; Sinfonie: Op. 78 **[H. von Karajan, 1982] (S)**; Suite per violoncello e orchestra Op. 16b **[C. Arming, Orchestre Philharmonique Royal de Liège, 2013] (H)**.
+
+>**• SCHOENBERG**:**➔Sinfonica** - **C**oncerti: Concerto per violino Op. 36 **[E-P salomen, Swedish Radio Symphony Orchestra, H Hahn, 2007] (S)**.
+
+>**• SCHUBERT**:**➔Da Camera** - **T**rii: D 28, 897, 898, 929.                                        
+**➔Sacra** - **M**esse: D 950 **[N. Harnoncourt, Chamber Orchestra of Europe, 1997] (S)**.                  
+**➔Sinfonica** - **S**infonie: D 82, 125 **[Y. Menuhin, Menuhin Festival Orchestra, 1999] (S)**, 485, 759 **[S. G. Solti, Vienna Philharmonic Orchestra, 1985] (S)**. 
+
+>**• SCHUMANN**:**➔Sinfonica** - **S**infonie: 38, 61, 97, 120 **[R. Ticciati, Scottish Chamber Orchestra, 2013] (H)**.                                                                                       
+**➔Pianoforte solo** - Op. 1, 2, 3, Studi Sinfonici Op. 13 **[A. Schiff, 1995] (S)**.
+
+>**• SHOSTAKOVICH**:**➔Da Camera** - **Q**uartetti: Op. 49, 68, 73, 83, 92, 101, 108, 110, 117, 118, 122, 133, 138, 142, 144 **[Fitzwilliam string quartet, 1998] (S)**.
+
+>**• SIBELIUS**:**➔Sinfonica** - **C**oncerti: per violino Op. 47; Poemi Sinfonici: Op. 26 (Finlandia), 112 (Tapiola) **[H. von Karajan, C. Ferras, BerlinerPhilarharmonic, 1965] (S)**; Sinfonie: Op. 39, 43, 52, 63, 82, 104, 1o5 **[L. Bernstein, New York Philharmonic, 1961-67] (S)**.
+
+>**• SMETANA**:**➔Sinfonica** - **P**oemi sinfonici: Má vlast > Vyšehrad (Il castello alto), Vltava (Moldava), Šárka, Z českých luhů a hájů (dai prati e dai boschi della Boemia), Tábor, Blaník **[R. Kubelik, 1971] (S)**.
+
+>**• SOR**:**➔Chitarra Sola** - **D**ivertimenti: Op. 23; Piccoli pezzi: Op. 24; Sonate: Op. 22, 25 **[A. Holzman, 1994] (S)**.
+
+>**• STRAUSS (Richard)**:**➔Sinfonica** - **P**oemi Sinfonici: Op. 20, 40 **[G. Sinopoli, Staatskepelle Dresden, 1991] (S)**.
+
+>**• STRAVINSKJI**:**➔Balletti**: La sagra della primavera **[S. S. Rattle, Berliner Philarmoniker, 2013] (S)**.
+
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
 T
-• TCHAIKOVSKY:➔Pianoforte solo - Le stagioni [M. Pletnev, 1985] (S).       ➔Sinfonica - Sinfonie: Op. 13, 17, 29, 36, 58, 64, 74 [Mariss Janson, Oslo Philarmonic Orchestra 1984-96] (S); Suite: Op. 43, 53, 55, 61 [Antal Dorati, New Philharmonia Orchestra, 1966] (S).
-• THALBERG:➔Pianoforte solo - Dodici studi Op.26, Fantasie Op. 33, 40 [S. Irmer, 2009] (S).
-⬆️ Vai all'inizio
+>**• TCHAIKOVSKY**:**➔Pianoforte solo** - Le stagioni **[M. Pletnev, 1985] (S)**.            
+**➔Sinfonica** - Sinfonie: Op. 13, 17, 29, 36, 58, 64, 74 **[Mariss Janson, Oslo Philarmonic Orchestra 1984-96] (S)**; Suite: Op. 43, 53, 55, 61 **[Antal Dorati, New Philharmonia Orchestra, 1966] (S)**.
 
-V
-• VILLA LOBOS:➔Chitarra Sola - 12 studi, 5 preludi [J. Bream, 1971-8] (S). ➔Sinfonica - Concerto: per chitarra ed orchestra ['' ''] (S).
-• VIVALDI:➔Da Camera - Concerti: L'estro armonico Op. 3 nn.1-12 [O. Dantone, Accademia Bizantina 2002] (S), Cimento dell'armonia Op. 8 nn 1-12 [O. Dantone, Accademia Bizantina, S. Montanari, 1999] (S). ➔Sacra - Messe: Gloria R 589; Magnificat R 611 [R. Muti, Philarmonia Orchestra 1976-7] (S).
-Y
-• YSAŸE:➔Violino solo - Sonate: Op. 27 n. 1, 2, 3, 4, 5, 6 [L. Kavakos, 1999] (S).
+>**• THALBERG**:**➔Pianoforte solo** - Dodici studi Op.26, Fantasie Op. 33, 40 **[S. Irmer, 2009] (S)**.
+
+**V**
+
+>•**VILLA LOBOS**:**➔Chitarra Sola** - 12 studi, 5 preludi.                 
+**➔Sinfonica** - **C**oncerto: per chitarra ed orchestra **[J. Bream, 1971-8] (S)**.
+
+>**•VIVALDI**:**➔Da Camera** - **C**oncerti: L'estro armonico Op. 3 nn.1-12 **[O. Dantone, Accademia Bizantina 2002] (S)**, Cimento dell'armonia Op. 8 nn 1-12 **[O. Dantone, Accademia Bizantina, S. Montanari, 1999] (S)**.                     
+**➔Sacra** - **M**esse: Gloria R 589; Magnificat R 611 **[R. Muti, Philarmonia Orchestra 1976-7] (S)**.
+
+**Y**
+
+>**• YSAŸE**:**➔Violino solo** - **S**onate: Op. 27 n. 1, 2, 3, 4, 5, 6 **[L. Kavakos, 1999] (S)**.
+
+
 ••••••••••••••••••••••••••••••••••••••••••••••••••••••
 
-⬆️ Vai all'inizio
+⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
