@@ -1,26 +1,26 @@
-**LISTA OPERE DEL CANALE @AllClassicalMusic (ITA)**  
+**LISTA OPERE DEL CANALE [@AllClassicalMusic](https://t.me/allclassiclamusic) (ITA)**  
                                     
 [♪ ᴄʜᴏᴩɪɴ](https://t.me.KingdomHeartsMatlord) for [@musicaclassica](https://t.me.musicaclassica)
 
 
-📌 **Qualità**: H (Hi-Res, le tracce sono contenute nel canale [@AllClassicalMusicHiRes](t.me/Allclassicalmusichires) (in questo canale le tracce non sono in sincro con quelle degli altri due canali)), S (Canali Flac e/o MP3: [@AllClassicalMusic](t.me/allclassiclamusic), [@AllClassicalMusicMP3](t.me/allclassicalmusicmp3)) | 📌 *Gli hashtag nel canale non contengono eventuali accenti dei cognomi dei compositori per facilitarne l'uso nella ricerca*.
+📌 **Qualità**: H (Hi-Res, le tracce sono contenute nel canale [@AllClassicalMusicHiRes](https://t.me/Allclassicalmusichires) (in questo canale le tracce non sono in sincro con quelle degli altri due canali)), S (Canali Flac e/o MP3: [@AllClassicalMusic](https://t.me/allclassiclamusic), [@AllClassicalMusicMP3](https://t.me/allclassicalmusicmp3)) | 📌 *Gli hashtag nel canale non contengono eventuali accenti dei cognomi dei compositori per facilitarne l'uso nella ricerca*.
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | -------------
 
 
                                     ••••••••••••••••••••••••••••••••••••••••••••••••••••
 **A**
 
->• **ALKAN**:**➔Pianoforte solo** - **S**chizzi Op. 63 **[L. Martin, 1990] (S)**.
+>• **ALKAN**:**➔Pianoforte solo** - **S**chizzi [Op. 63](https://t.me/AllClassicalMusic/2434) **[L. Martin, 1990] (S)**.
 
 **B**
 
->• **BACH**:**➔Clavicemabalo** - **I**nvezioni: a due voci BWV 772-782; Preludi e fughe: BWV 846-893 **[G. Gould, 1975] (H)**; **V**ariazioni Goldberg BWV 988 **[B. Rana, 2017/P-Jan Belder, 1999] (S)**.                                                                                                                
+>• **BACH**:**➔Clavicemabalo** - **I**nvezioni: a due voci BWV 772-782; Preludi e fughe: [BWV 846-893](https://t.me/AllClassicalMusicHiRes/129) **[G. Gould, 1975] (H)**; **V**ariazioni Goldberg [BWV 988](https://t.me/AllClassicalMusic/473) **[B. Rana, 2017/P-Jan Belder, 1999] (S)**.                                                                                                                
 >**➔Organo** - **S**onate: in trio BWV 525-530.                                                            
->**➔Sinfonica** - **C**oncerti: Brandeburghesi BWV 1046-1051 **[Consort of London, R. Haydon Clark, 1990] (S)**.                                                                                                    
->**➔Violino solo** - **P**artite BWV 1002-4-6; **S**onate BWV 1001-3-5 **[S. Montanari, 2011] (S)**.                  
->**➔Vocale** - **C**antata: BWV 4; **O**ratori: BWV 244 **[P. Herreweghe, Collegium Vocale Gent, 1998] (S)**.
+>**➔Sinfonica** - **C**oncerti: Brandeburghesi [BWV 1046-1051](https://t.me/AllClassicalMusic/780) **[Consort of London, R. Haydon Clark, 1990] (S)**.                                                                                                    
+>**➔Violino solo** - **P**artite [BWV 1002-4-6](https://t.me/AllClassicalMusic/1000); **S**onate [BWV 1001-3-5](https://t.me/AllClassicalMusic/1000) **[S. Montanari, 2011] (S)**.                  
+>**➔Vocale** - **C**antata: BWV 4; **O**ratori: [BWV 244](https://t.me/AllClassicalMusic/2069) **[P. Herreweghe, Collegium Vocale Gent, 1998] (S)**.
 
->• **BARRIOS**: **➔Chitarra Sola** - A Mi Madre; Caazapà; Cueca; Danza Paraguaya nn. 1-3; Fabiniana; Gavota Madrigal; Julia Florida (Barcarola); La Catedral; Las Abejas; Mazurka Apasionata; Pals de Abanico; Un Sueño en la Floresta; Una Limosna por el Amor de Dios; Vals Op. 8 nn. 3, 4; Vals de Primavera; Vals Tropical **[D. Russell, 1994] (S)**.
+>• **BARRIOS**: **➔Chitarra Sola** - [A Mi Madre](https://t.me/AllClassicalMusic/1158); [Caazapà](https://t.me/AllClassicalMusic/1159); [Cueca](https://t.me/AllClassicalMusic/1154); [Danza Paraguaya nn. 1-3](https://t.me/AllClassicalMusic/1142); [Fabiniana](https://t.me/AllClassicalMusic/1151); [Gavota Madrigal](https://t.me/AllClassicalMusic/1141); [Julia Florida (Barcarola)](https://t.me/AllClassicalMusic/1145); [La Catedral](https://t.me/AllClassicalMusic/1155); [Las Abejas](https://t.me/AllClassicalMusic/1150); [Mazurka Apasionata](https://t.me/AllClassicalMusic/1152); [Pals de Abanico](https://t.me/AllClassicalMusic/1153); [Un Sueño en la Floresta](https://t.me/AllClassicalMusic/1140); [Una Limosna por el Amor de Dios](https://t.me/AllClassicalMusic/1160); [Vals Op. 8 nn. 3, 4](https://t.me/AllClassicalMusic/1149); [Vals de Primavera](https://t.me/AllClassicalMusic/1147); [Vals Tropical](https://t.me/AllClassicalMusic/1148) **[D. Russell, 1994] (S)**.
 
 >• **BEETHOVEN**:**➔Da Camera** - *V*iolino e pianoforte Op. 12, 23, 24, 30, 47, 96; Trii per pianoforte, violino e violoncello Op. 1 no.1, WoO n.38; Violoncello e pianoforte: Op. 5, 66, 69, 102, WoO 45, 46 **[F. Gulda, P. Fournier, 1959] (S)**.                                     
 ➔**Sinfonica** - **C**oncerti per pianoforte Op. 15, 19; Sinfonie: Op. 21, 36, 55, 60, 67, 68, 92, 93, 125 **[L. Bernstein, Wiener Philharmoniker, 1978] (S)**.                                   
