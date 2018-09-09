@@ -48,8 +48,6 @@
 >**• CORELLI**:**➔Da Camera** - **C**oncerti: Op. 6 nn. 9-12 **[N. Marriner, A. of St. Martin in-the- Fields, 1974-1995] (S)**; **S**onate: per **violino** Op. 5 nn. 1-6 **[O. Dantone, Accademia bizantina, 2005] (S)**.                                                                                                    
 **➔Da Chiesa** - **C**oncerti: Op. 6 nn. 1-8 **[N. Marriner, A. of St. Martin in-the- Fields, 1974-1995] (S)**; **S**onate: per **violino** Op. 5 nn. 7-12 **[O. Dantone, Accademia bizantina, 2005] (S)**.
 
-⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
-
 **D**
 
 >**• DEBUSSY**:**➔Pianoforte solo** - **P**reludi: Libri nn. 1-2 **[A. B. Michelangeli, 1978] (S)**, Images I-II, Children's corner, Suite bergamasque, L'isle joyeus **[S-J. Cho, 2015] (H)**.
@@ -68,8 +66,6 @@
 **H**
 
 >**• HAYDN**:**➔Sinfonica** - **S**infonie: Hob I/1, 2, 3, 4, 5, 6, 7, 8. **C**oncerti: per 2 **Lire** organizzate Hob VIIh/1-5 **[S. Lautenbacher, H. Ruf, 1970] (S)**; per **violino** Hob VIIa/1, 2, 3, 4, per **violoncello** Hob VIIb/1, 2.
-
-⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
 **L**
 
@@ -148,8 +144,6 @@
 >**• STRAUSS (Richard)**:**➔Sinfonica** - **P**oemi Sinfonici: Op. 20, 40 **[G. Sinopoli, Staatskepelle Dresden, 1991] (S)**.
 
 >**• STRAVINSKJI**:**➔Balletti**: La sagra della primavera **[S. S. Rattle, Berliner Philarmoniker, 2013] (S)**.
-
-⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
 T
 >**• TCHAIKOVSKY**:**➔Pianoforte solo** - Le stagioni **[M. Pletnev, 1985] (S)**.            
