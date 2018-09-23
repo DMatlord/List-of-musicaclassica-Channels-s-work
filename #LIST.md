@@ -69,18 +69,18 @@
 
 **L**
 
->**• LISTZ**:**➔Pianoforte solo** - **S**tudi: S. 136 **[L. Howard, 1992] (S)**; **T**emi nazionali: Ungheresi S. 244 **[M. Campanella, 1974] (S).**                                                                 
-**➔Sinfonica** - **P**oemi sinfonici: S. 95-107 [M. Haselböck, Orchester Wiener, 2013] (S).
+>**• LISTZ**:**➔Pianoforte solo** - **S**tudi: [S. 136](https://t.me/AllClassicalMusic/521) **[L. Howard, 1992] (S)**; **T**emi nazionali: Ungheresi [S. 244](https://t.me/AllClassicalMusic/636) **[M. Campanella, 1974] (S).**                                                                 
+**➔Sinfonica** - **P**oemi sinfonici: [S. 95-107](https://t.me/AllClassicalMusic/1698) **[M. Haselböck, Orchester Wiener, 2013] (S)**.
 
->**• LOCATELLI**:**➔Sinfonica** - **C**oncerti: per violino Op. 3 nn. 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12 **[Nicholas Kraemer, Raglan Baroque Players, Elizabeth WallFisch, 1992-3] (S)**.
+>**• LOCATELLI**:**➔Sinfonica** - **C**oncerti: per violino Op. 3 nn. [1](https://t.me/AllClassicalMusic/2183), [2](https://t.me/AllClassicalMusic/2188), [3](https://t.me/AllClassicalMusic/2193), [4](https://t.me/AllClassicalMusic/2198), [5](https://t.me/AllClassicalMusic/2204), [6](https://t.me/AllClassicalMusic/2209), [7](https://t.me/AllClassicalMusic/2214), [8](https://t.me/AllClassicalMusic/2219), [9](https://t.me/AllClassicalMusic/2225), [10](https://t.me/AllClassicalMusic/2230), [11](https://t.me/AllClassicalMusic/2235), [12](https://t.me/AllClassicalMusic/2240) **[Nicholas Kraemer, Raglan Baroque Players, Elizabeth WallFisch, 1992-3] (S)**.
 
 **M**
 
->**• MAHLER**:**➔Sinfonica** - **S**infonie: Das Lied von der Erde (Il canto della terra), Sinfonia per contralto, tenore e orchestra **[O. Klemperer, Philharmonia Orchestra, C. Ludwig, F. Wunderlich, 1967] (S**).
+>**• MAHLER**:**➔Sinfonica** - **S**infonie: [Das Lied von der Erde (Il canto della terra), Sinfonia per contralto, tenore e orchestra](https://t.me/AllClassicalMusic/1324) **[O. Klemperer, Philharmonia Orchestra, C. Ludwig, F. Wunderlich, 1967] (S)**.
 
->**• MÉHUL**:**➔Sinfonica** - **O**verture: Le Trésor supposé, La Chasse Du Jeune Henri; Sinfonie: nn. 1, 2, 3, 4 **[M. Swierczewski, Orchestra of the Gulbenkian Foundation, A. Lima, 1988] (S)**.
+>**• MÉHUL**:**➔Sinfonica** - **O**verture: [Le Trésor supposé](https://t.me/AllClassicalMusic/2750), [La Chasse Du Jeune Henri](https://t.me/AllClassicalMusic/2741); Sinfonie: nn. [1](https://t.me/AllClassicalMusic/2742), [2](https://t.me/AllClassicalMusic/2746), [3](https://t.me/AllClassicalMusic/2751), [4](https://t.me/AllClassicalMusic/2754%C3%B9) **[M. Swierczewski, Orchestra of the Gulbenkian Foundation, A. Lima, 1988] (S)**.
 
->**• MENDELSSOHN**:**➔A Quattro mani** - **P**reludi e fughe: Op. 35 nn.1-6/MWV U 116-U 66, U 129-U 105, U 131-U 191, U 122-U 108, U 126-U 106, U 135-U 128 (S);                            
+>**• MENDELSSOHN**:**➔A Quattro mani** - **P**reludi e fughe: Op. 35 nn. 1, 2, 3, 4, 5, 6/MWV [U 116](https://t.me/AllClassicalMusic/492)-[U 66](https://t.me/AllClassicalMusic/493), [U 129](https://t.me/AllClassicalMusic/494)-[U 105](https://t.me/AllClassicalMusic/495), [U 131](https://t.me/AllClassicalMusic/496)-[U 191](https://t.me/AllClassicalMusic/497), [U 122](https://t.me/AllClassicalMusic/498)-[U 108](https://t.me/AllClassicalMusic/499), [U 126](https://t.me/AllClassicalMusic/500)-[U 106](https://t.me/AllClassicalMusic/501), [U 135](https://t.me/AllClassicalMusic/502)-[U 128](https://t.me/AllClassicalMusic/503) **[Claudio Colombo] (S)**;                            
 **➔Da Camera** - Quartetti: Op. 12/MWV R 25, Op. 13/MWV R 22.                         
 **➔Organo solo** - Sonate Op.65 nn. 1, 2, 3, 4, 5, 6 **[K. Volostnov, 2006] (S)**.                                                                                                   
 **➔Sinfonica** - **S**infonie: per orchestra Op. 11/MWV N 13, Op. 52/MWV N 18, Op. 90/MWV N 16, Op. 107/MWV N 15 **[W. Sawallish, New Philharmonia Orchestra, 1967] (S)**.
