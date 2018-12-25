@@ -114,13 +114,13 @@
 
 **R**
 
+>**• RAVEL**:**➔Da Camera** - **T**rio per **pianoforte** Op. [68](https://t.me/AllClassicalMusic/2947).          
+**➔Pianoforte solo**: [Gaspard de la nuit](https://t.me/AllClassicalMusic/2944), [Jeux d'eau](https://t.me/AllClassicalMusic/2939).            
+   **➔Sinfonica** - Concerti per **pianoforte**: Op. [83, in sol](https://t.me/AllClassicalMusic/2932); Per orchestra: [Bolero](https://t.me/AllClassicalMusic/2930), [Daphnis et Chloé](https://t.me/AllClassicalMusic/2941), [La valse](https://t.me/AllClassicalMusic/2931), [Pavane pour une infante défunte](https://t.me/AllClassicalMusic/2940), [Rapsodie espagnole](https://t.me/AllClassicalMusic/2935),  [Tzigane](https://t.me/AllClassicalMusic/2951) **[Abbado, Boulez, Karajan, Ozawa, Argerich, London/Boston Symphony Orchestra, 1961-1995] (S)** 
+
 >**• RACHMANINOFF**: **➔Da Camera**: Trii elegiachi nn. 1-3 **[Borodin Trio, 1984] (S)**.                 
 **➔Pianoforte solo** - **P**reludi: Op. 23 **[S. Rodriguez, 1993] (S)**; **S**onate: Op. 28, 36; 3 Notturni.                                                                                                                       
 **➔Sinfonica** - **C**oncerti per piano: Op. 1, 18, 30, 40, 43 **[J. Horenstein, Royal Philharmonic Orchestra, Earl Wild, 1965] (S)**; Danza Sinfonica Op.45-45a **[I. Thorson, J. Thurber, 1985/E. Oue, Minnesota Orchestra, 2001] (S)-(H)**; Sinfonie: Op. 13, 27, 44.
-
->**• RAVEL**:**➔Da Camera** - **T**rio per **pianoforte** Op. [68](https://t.me/AllClassicalMusic/2947). 
-**➔Pianoforte solo**: [Gaspard de la nuit](https://t.me/AllClassicalMusic/2944), [Jeux d'eau](https://t.me/AllClassicalMusic/2939).
-**➔Sinfonica** - Concerti per **pianoforte**: Op. [83, in sol](https://t.me/AllClassicalMusic/2932); Per orchestra: [Bolero](https://t.me/AllClassicalMusic/2930), [Daphnis et Chloé](https://t.me/AllClassicalMusic/2941), [La valse](https://t.me/AllClassicalMusic/2931), [Pavane pour une infante défunte](https://t.me/AllClassicalMusic/2940), [Rapsodie espagnole](https://t.me/AllClassicalMusic/2935),  [Tzigane](https://t.me/AllClassicalMusic/2951) **[Abbado, Boulez, Karajan, Ozawa, Argerich, London/Boston Symphony Orchestra, 1961-1995] (S)** 
 
 >**• REGONDI**:**➔Chitarra Sola** - Arie varie Op. 21, 22, su ''I Capuleti e Montecchi'' di Bellini; Fantasia su ''Don Giovanni'' di Mozart, Foglio d'album; Introduzione e Capriccio Op. 23; Notturno Op. 19 'Rêverie'; Rondò a capriccio Op. 20 Fête villageoise; Studi **[Alberto Mesirca, 2013] (S)**.
 
