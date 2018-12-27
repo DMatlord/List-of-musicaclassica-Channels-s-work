@@ -65,6 +65,8 @@
 
 >• **FAURÉ**:**➔Sacra**: **R**equiem: Op. [48](https://t.me/AllClassicalMusic/2861) **[A.Cluytens, V. de los Angeles, D. F-Dieskau, Orchestre de la société, 1962] (S)**.
 
+>• **FRANCK**:**➔Da Camera** - Per **violino** e **pianoforte** M. [8](https://t.me/AllClassicalMusic/2955) **[Nikolai Lugansky, Vadim Repin, 2010] (S)**.
+
 **G**
 
 >• **GRIEG**:**➔Sinfonica** - **S**uites Orchestrali: Holberg Suite [Op. 40](https://t.me/AllClassicalMusic/2853), Peer Gynt Suite nn. 1 [Op. 46](https://t.me/AllClassicalMusic/2846), 2 [Op. 55](https://t.me/AllClassicalMusic/2850) **[V. Altschuler, Academic symphony Orchestra of St.Petersburg Philharmony, 1997] (S)**. 
@@ -72,6 +74,10 @@
 **H**
 
 >**• HAYDN**:**➔Sinfonica** - **S**infonie: Hob I/1, 2, 3, 4, 5, 6, 7, 8. **C**oncerti: per 2 **Lire** organizzate Hob VIIh/[1](https://t.me/AllClassicalMusic/1084), [2](https://t.me/AllClassicalMusic/1087), [3](https://t.me/AllClassicalMusic/1090), [4](https://t.me/AllClassicalMusic/1093), [5](https://t.me/AllClassicalMusic/1096) **[S. Lautenbacher, H. Ruf, 1970] (S)**; per **violino** Hob VIIa/1, 2, 3, 4, per **violoncello** Hob VIIb/1, 2.
+
+**K**
+
+>**• KORNGOLD**:**➔Sinfonica**: **C**oncerto per **violino** e orchestra Op. [35](https://t.me/AllClassicalMusic/2977) **[Caroline Goulding, Berner Symphonieorchester,2018] (H-S)**
 
 **L**
 
@@ -94,7 +100,7 @@
 >**• MILHAUD**:**➔Balletti**: Op. [56](https://t.me/AllClassicalMusic/1427) (Le Boeuf sur le toit), [81](https://t.me/AllClassicalMusic/1428) (La création du monde).                  
 **➔Sinfonica** - **C**oncerti: per arpa Op. [323](https://t.me/AllClassicalMusic/1434) **[K. Nagano, Orchestre de l'opéra de Lyon, F. Cambreling, 1992] (S)**.
 
->**• MOZART**:**➔Sinfonica** - **C**oncerti: per corno K [412](https://t.me/AllClassicalMusic/1203) (II° mvt. K 512 arr. Süssmayr), [417]8https://t.me/AllClassicalMusic/1205), [447](https://t.me/AllClassicalMusic/1208), [495](https://t.me/AllClassicalMusic/1211) **[H. von Karajan, Philharmonia Orchestra, D. Brain, 1953] (S)**, per fagotto K 622, per flauto ed arpa K 299; Sinfonie: K [16](https://t.me/AllClassicalMusic/622), [19](https://t.me/AllClassicalMusic/625), [22](https://t.me/AllClassicalMusic/631) **[N. Marriner, S. Academy in the fields, 2006] (S)**; Sonate: per clavicembalo(c)/pianoforte(p) e violino K [10](https://t.me/AllClassicalMusic/925), [14](https://t.me/AllClassicalMusic/934), [30](https://t.me/AllClassicalMusic/932), [301](https://t.me/AllClassicalMusic/922), [304](https://t.me/AllClassicalMusic/937), [379](https://t.me/AllClassicalMusic/930), [481](https://t.me/AllClassicalMusic/927) **[Alina Ibragimova, 2016] (S)** | K [6](https://t.me/AllClassicalMusic/1947), [7](https://t.me/AllClassicalMusic/1960), [8](https://t.me/AllClassicalMusic/1981), [9](https://t.me/AllClassicalMusic/1990), [10](https://t.me/AllClassicalMusic/2049), [11](https://t.me/AllClassicalMusic/2052), [12](https://t.me/AllClassicalMusic/2055), [13](https://t.me/AllClassicalMusic/2057), [14](https://t.me/AllClassicalMusic/2060), [15](https://t.me/AllClassicalMusic/2063), K [26](https://t.me/AllClassicalMusic/2032), [27](https://t.me/AllClassicalMusic/2018), [28](https://t.me/AllClassicalMusic/1975), [29](https://t.me/AllClassicalMusic/1995), [30](https://t.me/AllClassicalMusic/1965), [31](https://t.me/AllClassicalMusic/2006), K [296](https://t.me/AllClassicalMusic/2006), [301](https://t.me/AllClassicalMusic/1963), [302](https://t.me/AllClassicalMusic/1988), [303](https://t.me/AllClassicalMusic/1958), [304](https://t.me/AllClassicalMusic/1993), [305](https://t.me/AllClassicalMusic/2001), [306](https://t.me/AllClassicalMusic/2008), K [372](https://t.me/AllClassicalMusic/2024), [374a](https://t.me/AllClassicalMusic/2036), [374b](https://t.me/AllClassicalMusic/2025), [376](https://t.me/AllClassicalMusic/2012), [377](https://t.me/AllClassicalMusic/2020), [378](https://t.me/AllClassicalMusic/1954), [379](https://t.me/AllClassicalMusic/1944), [380](https://t.me/AllClassicalMusic/1984), [396](https://t.me/AllClassicalMusic/2035), K [402](https://t.me/AllClassicalMusic/1977), [403](https://t.me/AllClassicalMusic/2003), [404](https://t.me/AllClassicalMusic/1979), K [454](https://t.me/AllClassicalMusic/1971), K [481](https://t.me/AllClassicalMusic/1967), K [526](https://t.me/AllClassicalMusic/1997), K [547](https://t.me/AllClassicalMusic/1951) **[G. Cooper, R. Podger, 2004-2009] (S)**.
+>**• MOZART**:**➔Sinfonica** - **C**oncerti: per **corno** K [412](https://t.me/AllClassicalMusic/1203) (II° mvt. K 512 arr. Süssmayr), [417](https://t.me/AllClassicalMusic/1205), [447](https://t.me/AllClassicalMusic/1208), [495](https://t.me/AllClassicalMusic/1211) **[H. von Karajan, Philharmonia Orchestra, D. Brain, 1953] (S)**, per **fagotto** K 622, per **flauto** ed **arpa** K 299; Sinfonie: K [16](https://t.me/AllClassicalMusic/622), [19](https://t.me/AllClassicalMusic/625), [22](https://t.me/AllClassicalMusic/631) **[N. Marriner, S. Academy in the fields, 2006] (S)**; Sonate: per **clavicembalo(c)/pianoforte(p)** e **violino** K [10](https://t.me/AllClassicalMusic/925), [14](https://t.me/AllClassicalMusic/934), [30](https://t.me/AllClassicalMusic/932), [301](https://t.me/AllClassicalMusic/922), [304](https://t.me/AllClassicalMusic/937), [379](https://t.me/AllClassicalMusic/930), [481](https://t.me/AllClassicalMusic/927) **[Alina Ibragimova, 2016] (S)** | K [6](https://t.me/AllClassicalMusic/1947), [7](https://t.me/AllClassicalMusic/1960), [8](https://t.me/AllClassicalMusic/1981), [9](https://t.me/AllClassicalMusic/1990), [10](https://t.me/AllClassicalMusic/2049), [11](https://t.me/AllClassicalMusic/2052), [12](https://t.me/AllClassicalMusic/2055), [13](https://t.me/AllClassicalMusic/2057), [14](https://t.me/AllClassicalMusic/2060), [15](https://t.me/AllClassicalMusic/2063), K [26](https://t.me/AllClassicalMusic/2032), [27](https://t.me/AllClassicalMusic/2018), [28](https://t.me/AllClassicalMusic/1975), [29](https://t.me/AllClassicalMusic/1995), [30](https://t.me/AllClassicalMusic/1965), [31](https://t.me/AllClassicalMusic/2006), K [296](https://t.me/AllClassicalMusic/2006), [301](https://t.me/AllClassicalMusic/1963), [302](https://t.me/AllClassicalMusic/1988), [303](https://t.me/AllClassicalMusic/1958), [304](https://t.me/AllClassicalMusic/1993), [305](https://t.me/AllClassicalMusic/2001), [306](https://t.me/AllClassicalMusic/2008), K [372](https://t.me/AllClassicalMusic/2024), [374a](https://t.me/AllClassicalMusic/2036), [374b](https://t.me/AllClassicalMusic/2025), [376](https://t.me/AllClassicalMusic/2012), [377](https://t.me/AllClassicalMusic/2020), [378](https://t.me/AllClassicalMusic/1954), [379](https://t.me/AllClassicalMusic/1944), [380](https://t.me/AllClassicalMusic/1984), [396](https://t.me/AllClassicalMusic/2035), K [402](https://t.me/AllClassicalMusic/1977), [403](https://t.me/AllClassicalMusic/2003), [404](https://t.me/AllClassicalMusic/1979), K [454](https://t.me/AllClassicalMusic/1971), K [481](https://t.me/AllClassicalMusic/1967), K [526](https://t.me/AllClassicalMusic/1997), K [547](https://t.me/AllClassicalMusic/1951) **[G. Cooper, R. Podger, 2004-2009] (S)**.
 
 ⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
@@ -108,7 +114,7 @@
 >**• PONCE**:**➔Chitarra Sola** - 3 Canzoni popolari messicane; Estrellita, Matinal, Postludio; Preludi: 24 preludi, Preludio e Balletto; Sonate: mexicana, III, classica, romantica, meridionale; Scherzino messicano; Suite: Antigua, in A minor; Tema variato e Finale; Trépico, Valzer; Variazioni su un tema di Cabezón, Vespertina.                          
 **➔Sinfonica** - **C**oncerti: per chitarra e clavicembalo, per chitarra ed orchestra **[G. Abiton, B. Martin, Ensemble Orchestral Stringendo J. Thorel, 1996-1998] (S)**.
 
->**• PROKOFIEV**:**➔Sinfonica** - **C**oncerti: per pianoforte nn. 1-5/Op. 10, 16, 26, 53, 55 **[V. Gergiev, A. Toradze, Kirov Orchestra, 1995] (S)**.
+>**• PROKOFIEV**:**➔Da Camera** - **S**onate per violino: Op. [80 n. 1](https://t.me/AllClassicalMusic/2966), Op. [94bis n. 2](https://t.me/AllClassicalMusic/2967) **[Alina Ibragimova, Steven Osborne, 2013] (S)**; **➔Sinfonica** - **C**oncerti: per pianoforte nn. 1-5/Op. 10, 16, 26, 53, 55 **[V. Gergiev, A. Toradze, Kirov Orchestra, 1995] (S)**.
 
 >**• PURCELL**:**➔Sinfonica** - **S**uite: Z 660-669 **[P.-Jan Belder, 2007] (S)**; Trio Sonate a 3 parti Z 790-801 **[P. Beznosiuk and R. Podger, C. Coin, C. Hogwood, 1995] (S)**. 
 
@@ -145,7 +151,7 @@
 
 >**• SHOSTAKOVICH**:**➔Da Camera** - **Q**uartetti: Op. 49, 68, 73, 83, 92, 101, 108, 110, 117, 118, 122, 133, 138, 142, 144 **[Fitzwilliam string quartet, 1998] (S)**.
 
->**• SIBELIUS**:**➔Sinfonica** - **C**oncerti: per violino Op. 47; Poemi Sinfonici: Op. 26 (Finlandia), 112 (Tapiola) **[H. von Karajan, C. Ferras, BerlinerPhilarharmonic, 1965] (S)**; Sinfonie: Op. 39, 43, 52, 63, 82, 104, 1o5 **[L. Bernstein, New York Philharmonic, 1961-67] (S)**.
+>**• SIBELIUS**:**➔Sinfonica** - **C**oncerti: per **violino** Op. 47; Poemi Sinfonici: Op. 26 (Finlandia), 112 (Tapiola) **[H. von Karajan, C. Ferras, BerlinerPhilarharmonic, 1965] (S)**; Sinfonie: Op. 39, 43, 52, 63, 82, 104, 1o5 **[L. Bernstein, New York Philharmonic, 1961-67] (S)**.
 
 >**• SMETANA**:**➔Sinfonica** - **P**oemi sinfonici: Má vlast > Vyšehrad (Il castello alto), Vltava (Moldava), Šárka, Z českých luhů a hájů (dai prati e dai boschi della Boemia), Tábor, Blaník **[R. Kubelik, 1971] (S)**.
 
@@ -154,6 +160,8 @@
 >**• STRAUSS (Richard)**:**➔Sinfonica** - **P**oemi Sinfonici: Op. 20, 40 **[G. Sinopoli, Staatskepelle Dresden, 1991] (S)**.
 
 >**• STRAVINSKJI**:**➔Balletti**: La sagra della primavera **[S. S. Rattle, Berliner Philarmoniker, 2013] (S)**.
+
+>**• SUK**:**➔Sinfonica**: **F**antasia per violino Op. [24](https://t.me/AllClassicalMusic/2962) **[Christian Tetzlaff, Helsinki Philharmonic Orchestra, 2016] (S)**.
 
 T
 >**• TCHAIKOVSKY**:**➔Pianoforte solo** - Le stagioni **[M. Pletnev, 1985] (S)**.            
