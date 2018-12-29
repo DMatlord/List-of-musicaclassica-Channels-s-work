@@ -120,6 +120,9 @@
 
 **R**
 
+>**• RAUTAVAARA**:**➔Pianoforte e violoncello** - [2 preludi e fughe](https://t.me/AllClassicalMusic/3077); [Melodia del mio cuore](https://t.me/AllClassicalMusic/3083); **S**onate nn. [1](https://t.me/AllClassicalMusic/3076), [2](https://t.me/AllClassicalMusic/3084).            
+**➔Violoncello solo** - [**S**onata per **violoncello** solo](https://t.me/AllClassicalMusic/3079) **[G. Süssmann, T. Tetzlaff, 2018] (S)**.
+
 >**• RAVEL**:**➔Da Camera** - **T**rio per **pianoforte** Op. [68](https://t.me/AllClassicalMusic/2947).          
 **➔Pianoforte solo**: [Gaspard de la nuit](https://t.me/AllClassicalMusic/2944), [Jeux d'eau](https://t.me/AllClassicalMusic/2939).            
    **➔Sinfonica** - Concerti per **pianoforte**: Op. [83, in sol](https://t.me/AllClassicalMusic/2932); Per orchestra: [Bolero](https://t.me/AllClassicalMusic/2930), [Daphnis et Chloé](https://t.me/AllClassicalMusic/2941), [La valse](https://t.me/AllClassicalMusic/2931), [Pavane pour une infante défunte](https://t.me/AllClassicalMusic/2940), [Rapsodie espagnole](https://t.me/AllClassicalMusic/2935),  [Tzigane](https://t.me/AllClassicalMusic/2951) **[Abbado, Boulez, Karajan, Ozawa, Argerich, London/Boston Symphony Orchestra, 1961-1995] (S)** 
