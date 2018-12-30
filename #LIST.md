@@ -137,13 +137,16 @@
 
 >**• RODRIGO**:**➔Sinfonica**: **C**oncerti per chitarra: Concierto de Aranjuez, Fantasia para un Gentilhombre **[G. Navarro, Philharmonia Orchestra/English Chamber Orchestra, Narciso Yepes, 1979/1978] (S)**.
 
+>**• ROSSINI**:**➔Sinfonica** - [Overtures](https://t.me/AllClassicalMusic/3091) **[N. Marriner, A. of St. Martin in-the- Fields, 1992] (S)**
+
 ⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
 **S**
 
 >**• SAINT-SAËNS**:**➔Sinfonica** - **A**llegro Op. 43 [+]; **violino e orchestra**: Concerti per **pianoforte** Op. [17](https://t.me/AllClassicalMusic/2914), [22](https://t.me/AllClassicalMusic/2917), [29](https://t.me/AllClassicalMusic/2919), [44](https://t.me/AllClassicalMusic/2922), [103](https://t.me/AllClassicalMusic/2924) **[J-P. Collard, Royal Philharmonic Orchestra, A. Previn, 1987] (S)**; **violino** Op. 20, 58, 61 [+]; **I**ntroduzione e rondò capriccioso Op. 28 [+]; Le Déluge Op. 45 [+]; Sei studi per **pianoforte** Op. 52 (Trascrizione per orchestra di Eugène Ysaÿe) [+]; Havanaise Op. 83 [+]; **M**arce da concerto Op. 62 [+]; **C**apriccio Op. 122 [+]; (-La muse et le poète-) [+]; **violoncello e orchestra**: Concerti per violoncello Op. 33, 119 [+]; Romanza Op. 36, 37, 48; (-La muse et le poète-) **[C. Arming, Orchestre Philharmonique Royal de Liège, 2013] (H)**; **S**infonie: Op. 78 **[H. von Karajan, 1982] (S)**; Suite per **violoncello e orchestra** Op. 16b **[C. Arming, Orchestre Philharmonique Royal de Liège, 2013] (H)+**.
 
->**• SCHOENBERG**:**➔Sinfonica** - **C**oncerti: Concerto per violino Op. 36 **[E-P salomen, Swedish Radio Symphony Orchestra, H Hahn, 2007] (S)**.
+>**• SCHOENBERG**:**➔Da Camera** - **Q**uintetti: [per archi Op. 4](https://t.me/AllClassicalMusic/3120) **[B. Brovtsyn, A. Grosz, j. P. Maintz, M. Rysanov, T. Thedéen, 2012] (S)**.           
+**➔Sinfonica** - **C**oncerti: Concerto per **violino** Op. 36 **[E-P salomen, Swedish Radio Symphony Orchestra, H Hahn, 2007] (S)**.
 
 >**• SCHUBERT**:**➔Da Camera** - **T**rii: D 28, 897, 898, 929.                                        
 **➔Sacra** - **M**esse: D 950 **[N. Harnoncourt, Chamber Orchestra of Europe, 1997] (S)**.                  
