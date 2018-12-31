@@ -62,6 +62,10 @@
 
 ⬆️ [Vai all'inizio](https://github.com/MatFryderyckChopin/List-of-musicaclassica-Channels-s-work/blob/master/%23LIST.md)
 
+**E**
+
+>• **ELGAR**:**➔Sinfonica** - **Marce militari** Op. 39 nn. [1](https://t.me/AllClassicalMusic/3183), [4](https://t.me/AllClassicalMusic/3184); **Overtures**: Op. [50](https://t.me/AllClassicalMusic/3178); **S**infonie: nn. [1 Op. 55](https://t.me/AllClassicalMusic/3174), [2 Op. 63](https://t.me/AllClassicalMusic/3179) **[G. Sinopoli, Philharmonia Orchestra, 1988/1890] (S)**.
+
 **F**
 
 >• **FAURÉ**:**➔Sacra**: **R**equiem: Op. [48](https://t.me/AllClassicalMusic/2861) **[A.Cluytens, V. de los Angeles, D. F-Dieskau, Orchestre de la société, 1962] (S)**.
@@ -149,7 +153,7 @@
 >**• SCHOENBERG**:**➔Da Camera** - **Q**uintetti: [per archi Op. 4](https://t.me/AllClassicalMusic/3120) **[B. Brovtsyn, A. Grosz, j. P. Maintz, M. Rysanov, T. Thedéen, 2012] (S)**.           
 **➔Sinfonica** - **C**oncerti: Concerto per **violino** Op. 36 **[E-P salomen, Swedish Radio Symphony Orchestra, H Hahn, 2007] (S)**.
 
->**• SCHUBERT**:**➔Da Camera** - **T**rii: D 28, 897, 898, 929.                                        
+>**• SCHUBERT**:**➔Da Camera** - **T**rii: per pianoforte D [28](https://t.me/AllClassicalMusic/3166), [897](https://t.me/AllClassicalMusic/3165), [898](https://t.me/AllClassicalMusic/3161), [929](https://t.me/AllClassicalMusic/3167) **[Trio Élègiaque, 2018] (S)**.                                        
 **➔Sacra** - **M**esse: D 950 **[N. Harnoncourt, Chamber Orchestra of Europe, 1997] (S)**.                  
 **➔Sinfonica** - **S**infonie: D 82, 125 **[Y. Menuhin, Menuhin Festival Orchestra, 1999] (S)**, 485, 759 **[S. G. Solti, Vienna Philharmonic Orchestra, 1985] (S)**. 
 
