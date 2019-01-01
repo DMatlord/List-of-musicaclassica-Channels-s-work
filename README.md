@@ -6,4 +6,4 @@ Maggiori info > [@musicaclassicaforwarder](https://t.me/musicaclassicaforwarder)
                               
 NB. Here is the list of the works of the group of channels belonging to the [@musicaclassica](https://t.me/musicaclassica) group.
 
-More information> [@musicaclassicaforwarder](https://t.me/musicaclassicaforwarder).
+More information > [@musicaclassicaforwarder](https://t.me/musicaclassicaforwarder).
