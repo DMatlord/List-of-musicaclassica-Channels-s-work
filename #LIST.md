@@ -184,15 +184,15 @@ T
 
 **V**
 
->•**VILLA LOBOS**:**➔Chitarra Sola** - 12 studi, 5 preludi.                 
-**➔Sinfonica** - **C**oncerto: per chitarra ed orchestra **[J. Bream, 1971-8] (S)**.
+>•**VILLA LOBOS**:**➔Chitarra Sola** - [12 studi, 5 preludi](https://t.me/AllClassicalMusic/942).                 
+**➔Sinfonica** - **C**oncerto: [per **chitarra** ed orchestra](https://t.me/AllClassicalMusic/942) **[J. Bream, 1971-8] (S)**.
 
->**•VIVALDI**:**➔Da Camera** - **C**oncerti: L'estro armonico Op. 3 nn.1-12 **[O. Dantone, Accademia Bizantina 2002] (S)**, Cimento dell'armonia Op. 8 nn 1-12 **[O. Dantone, Accademia Bizantina, S. Montanari, 1999] (S)**.                     
-**➔Sacra** - **M**esse: Gloria R 589; Magnificat R 611 **[R. Muti, Philarmonia Orchestra 1976-7] (S)**.
+>**•VIVALDI**:**➔Da Camera** - **C**oncerti: L'estro armonico Op. [3 nn.1-12](https://t.me/AllClassicalMusic/852) **[O. Dantone, Accademia Bizantina 2002] (S)**, Cimento dell'armonia Op. [8 nn 1-12](https://t.me/AllClassicalMusic/2677) **[O. Dantone, Accademia Bizantina, S. Montanari, 1999] (S)**.                     
+**➔Sacra** - **M**esse: Gloria [R 589](https://t.me/AllClassicalMusic/1778); Magnificat [R 611](https://t.me/AllClassicalMusic/1767) **[R. Muti, Philarmonia Orchestra 1976-7] (S)**.
 
 **Y**
 
->**• YSAŸE**:**➔Violino solo** - **S**onate: Op. 27 n. 1, 2, 3, 4, 5, 6 **[L. Kavakos, 1999] (S)**.
+>**• YSAŸE**:**➔Violino solo** - **S**onate: Op. 27 n. [1](https://t.me/AllClassicalMusic/2378), [2](https://t.me/AllClassicalMusic/2382), [3](https://t.me/AllClassicalMusic/2386), [4](https://t.me/AllClassicalMusic/2387), [5](https://t.me/AllClassicalMusic/2390), [6](https://t.me/AllClassicalMusic/2392) **[L. Kavakos, 1999] (S)**.
 
 
 ••••••••••••••••••••••••••••••••••••••••••••••••••••••
