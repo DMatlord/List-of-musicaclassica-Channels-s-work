@@ -93,7 +93,7 @@
 
 **M**
 
->**• MAHLER**:**➔Sinfonica** - **S**infonie: [Das Lied von der Erde (Il canto della terra), Sinfonia per contralto, tenore e orchestra](https://t.me/AllClassicalMusic/1324) **[O. Klemperer, Philharmonia Orchestra, C. Ludwig, F. Wunderlich, 1967] (S)**.
+>**• MAHLER**:**➔Sinfonica** - **S**infonie: Sinfonia n. [6](https://t.me/AllClassicalMusic/3265) **[R. Chailly, Royal Concertgebouw Orchestra, 1990] (S)** , [Das Lied von der Erde (Il canto della terra), Sinfonia per contralto, tenore e orchestra](https://t.me/AllClassicalMusic/1324) **[O. Klemperer, Philharmonia Orchestra, C. Ludwig, F. Wunderlich, 1967] (S)**.
 
 >**• MÉHUL**:**➔Sinfonica** - **O**verture: [Le Trésor supposé](https://t.me/AllClassicalMusic/2750), [La Chasse Du Jeune Henri](https://t.me/AllClassicalMusic/2741); Sinfonie: nn. [1](https://t.me/AllClassicalMusic/2742), [2](https://t.me/AllClassicalMusic/2746), [3](https://t.me/AllClassicalMusic/2751), [4](https://t.me/AllClassicalMusic/2754%C3%B9) **[M. Swierczewski, Orchestra of the Gulbenkian Foundation, A. Lima, 1988] (S)**.
 
