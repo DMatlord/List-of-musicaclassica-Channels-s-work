@@ -185,6 +185,8 @@ T
 
 **V**
 
+>•**VERDI**:**➔Da Camera** > [Quartetto in mi minore](https://t.me/AllClassicalMusic/3283) **[Quartetto d'Archi della Scala, 2009] (S)**. 
+
 >•**VILLA LOBOS**:**➔Chitarra Sola** - [12 studi, 5 preludi](https://t.me/AllClassicalMusic/942).                 
 **➔Sinfonica** - **C**oncerto: [per **chitarra** ed orchestra](https://t.me/AllClassicalMusic/942) **[J. Bream, 1971-8] (S)**.
 
