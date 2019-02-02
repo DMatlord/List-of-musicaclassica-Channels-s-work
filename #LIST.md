@@ -35,7 +35,7 @@
 >• **BERLIOZ**:**➔Sinfonica** - **S**infonie: [H 48](https://t.me/AllClassicalMusic/417) **[E. Inbal, Radio-Sinfonie-Orchester Frankfurt, 1987] (S)**.                                                                                              
 **➔Sacra**: **R**equiem: [H 75](https://t.me/AllClassicalMusic/1125) **[E. Ormandy, Philadelphia Orchestra, 1964] (S)**.
 
->• **BRAHMS**:**➔Da Camera** - Per **clarinetto**: Trio Op. [114](https://t.me/AllClassicalMusic/3277), Quintetto Op. [115](https://t.me/AllClassicalMusic/3273) **[Gabrieli String Quartet , T. King,  C. Benson,  K. Georgian,  I. Jewel, K. Sillito, B. O' Reilly, K. Harvey, 1983] (S)**.                       
+>• **BRAHMS**:**➔Da Camera** - Per **clarinetto**: Trio Op. [114](https://t.me/AllClassicalMusic/3277), Quintetto Op. [115](https://t.me/AllClassicalMusic/3273) **[Gabrieli String Quartet , T. King,  C. Benson,  K. Georgian,  I. Jewel, K. Sillito, B. O' Reilly, K. Harvey, 1983] (S)**; per **violino** e **pianoforte**: Sonate Op [78](https://t.me/AllClassicalMusic/3290), [100](https://t.me/AllClassicalMusic/3293), [108](https://t.me/AllClassicalMusic/3296), [WoO 2](https://t.me/AllClassicalMusic/3300) (F.A.E) **[Piano – Yefim Bronfman, Nikolaj Znaider, 2005] (S)**.                           
 **➔Sinfonica** - **S**infonie: [Op. 68](https://t.me/AllClassicalMusic/870), [73](https://t.me/AllClassicalMusic/874), [90](https://t.me/AllClassicalMusic/878), [98](https://t.me/AllClassicalMusic/882) **[J. van Zweden, 2010] (S)**.                     
 **➔Pianoforte solo** - **D**anze ungheresi: versione per orchestra **[I. Fischer, Budapest Festival Orchestra, 1999] (S)**.
 
