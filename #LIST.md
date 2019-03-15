@@ -128,7 +128,7 @@
 
 >**• RAVEL**:**➔Da Camera** - **T**rio per **pianoforte** Op. [68](https://t.me/AllClassicalMusic/2947)[+].          
 **➔Pianoforte solo**: [Gaspard de la nuit](https://t.me/AllClassicalMusic/2944), [Jeux d'eau](https://t.me/AllClassicalMusic/2939)[+]; À la manière de [Borodine](https://t.me/AllClassicalMusic/3213)/[Chabrier](https://t.me/AllClassicalMusic/3214), [Gaspard de la nuite](https://t.me/AllClassicalMusic/3208), [Jeux d'aeau](https://t.me/AllClassicalMusic/3197), [La Valse](https://t.me/AllClassicalMusic/3206), [Le Tombeau de Couperin](https://t.me/AllClassicalMusic/3190), [Menuet antique](https://t.me/AllClassicalMusic/3211), [Menuet sur le nom d'Haydn](https://t.me/AllClassicalMusic/3212), [Miroirs](https://t.me/AllClassicalMusic/3216), [Pavane pour une infante défunte](https://t.me/AllClassicalMusic/3189), Prélude, [Sérénade grotesque](https://t.me/AllClassicalMusic/3196), [Sonatine](https://t.me/AllClassicalMusic/3221), [Valses nobles et sentimentales](https://t.me/AllClassicalMusic/3198) **[Louis Lortie, 1989]** .            
-   **➔Sinfonica** - Concerti per **pianoforte**: Op. [83, in sol](https://t.me/AllClassicalMusic/2932); Per orchestra: [Bolero](https://t.me/AllClassicalMusic/2930), [Daphnis et Chloé](https://t.me/AllClassicalMusic/2941), [La valse](https://t.me/AllClassicalMusic/2931), [Pavane pour une infante défunte](https://t.me/AllClassicalMusic/2940), [Rapsodie espagnole](https://t.me/AllClassicalMusic/2935),  [Tzigane](https://t.me/AllClassicalMusic/2951) **[Abbado, Boulez, Karajan, Ozawa, Argerich, London/Boston Symphony Orchestra, 1961-1995]+**. 
+   **➔Sinfonica** - **C**oncerti per **pianoforte**: Op. [83, in sol](https://t.me/AllClassicalMusic/2932); Per orchestra: [Bolero](https://t.me/AllClassicalMusic/2930), [Daphnis et Chloé](https://t.me/AllClassicalMusic/2941), [La valse](https://t.me/AllClassicalMusic/2931), [Pavane pour une infante défunte](https://t.me/AllClassicalMusic/2940), [Rapsodie espagnole](https://t.me/AllClassicalMusic/2935),  [Tzigane](https://t.me/AllClassicalMusic/2951) **[Abbado, Boulez, Karajan, Ozawa, Argerich, London/Boston Symphony Orchestra, 1961-1995]+**. 
 
 >**• RACHMANINOFF**: **➔Da Camera**: Trii elegiachi nn. [1](https://t.me/AllClassicalMusic/1663), [2](https://t.me/AllClassicalMusic/1664) **[Borodin Trio, 1984]**.                 
 **➔Pianoforte solo** - **P**reludi: Op. [23](https://t.me/AllClassicalMusic/459) **[S. Rodriguez, 1993]**; **S**onate: Op. 28, 36; 3 Notturni.                                                                                                                       
@@ -140,7 +140,7 @@
 
 >**• RODRIGO**:**➔Sinfonica**: **C**oncerti per **chitarra**: [Concierto de Aranjuez, Fantasia para un Gentilhombre](https://t.me/AllClassicalMusic/1366) **[G. Navarro, Philharmonia Orchestra/English Chamber Orchestra, Narciso Yepes, 1979/1978]**.
 
->**• ROSSINI**:**➔Sinfonica** - [Overtures](https://t.me/AllClassicalMusic/3091) **[N. Marriner, A. of St. Martin in-the- Fields, 1992]**
+>**• ROSSINI**:**➔Sinfonica** - [**O**vertures](https://t.me/AllClassicalMusic/3091) **[N. Marriner, A. of St. Martin in-the- Fields, 1992]**
 
 **S**
 
@@ -153,8 +153,8 @@
 **➔Sacra** - **M**esse: D [950](https://t.me/AllClassicalMusic/1534) **[N. Harnoncourt, Chamber Orchestra of Europe, 1997]**.                  
 **➔Sinfonica** - **S**infonie: D [82](https://t.me/AllClassicalMusic/385), [125](https://t.me/AllClassicalMusic/390) **[Y. Menuhin, Menuhin Festival Orchestra, 1999]**, [485](https://t.me/AllClassicalMusic/684), [759](https://t.me/AllClassicalMusic/682) **[S. G. Solti, Vienna Philharmonic Orchestra, 1985]**. 
 
->**• SCHUMANN**:**➔Sinfonica** - **S**infonie: [38](https://t.me/AllClassicalMusic/3732), [61](https://t.me/AllClassicalMusic/3736), [97](https://t.me/AllClassicalMusic/3740), [120](https://t.me/AllClassicalMusic/3743) **[R. Ticciati, Scottish Chamber Orchestra, 2013]**.                                                                                       
-**➔Pianoforte solo** - Op. 1, 2, 3, Studi Sinfonici Op. [13](https://t.me/AllClassicalMusic/810) **[A. Schiff, 1995]**.
+>**• SCHUMANN**:**➔Sinfonica** - **C**oncerti per **pianoforte**: Op. [54](https://t.me/AllClassicalMusic/3786) **[M. Stadfeld, H. Orchestra Manchester, 2015]**, **S**infonie: [38](https://t.me/AllClassicalMusic/3732), [61](https://t.me/AllClassicalMusic/3736), [97](https://t.me/AllClassicalMusic/3740), [120](https://t.me/AllClassicalMusic/3743) **[R. Ticciati, Scottish Chamber Orchestra, 2013]**.                                                                                       
+**➔Pianoforte solo** - Op. 1, 2, 3, Studi Sinfonici Op. [13](https://t.me/AllClassicalMusic/810) **[A. Schiff, 1995]**, Kinderszenen Op. [15](https://t.me/AllClassicalMusic/3773) **[M. Stadfeld, 2015]**.
 
 >**• SHOSTAKOVICH**:**➔Da Camera** - **Q**uartetti: Op. [49](https://t.me/AllClassicalMusic/2604), [68](https://t.me/AllClassicalMusic/2608), [73](https://t.me/AllClassicalMusic/2614), [83](https://t.me/AllClassicalMusic/2619), [92](https://t.me/AllClassicalMusic/2625), [101](https://t.me/AllClassicalMusic/2628), [108](https://t.me/AllClassicalMusic/2632), [110](https://t.me/AllClassicalMusic/2637), [117](https://t.me/AllClassicalMusic/2642), [118](https://t.me/AllClassicalMusic/2647), [122](https://t.me/AllClassicalMusic/2653), [133](https://t.me/AllClassicalMusic/2660), [138](https://t.me/AllClassicalMusic/2662), [142](https://t.me/AllClassicalMusic/2665), [144](https://t.me/AllClassicalMusic/2668) **[Fitzwilliam string quartet, 1998]**.
 
