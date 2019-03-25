@@ -39,6 +39,8 @@
 **➔Sinfonica** - **S**infonie: [Op. 68](https://t.me/AllClassicalMusic/870), [73](https://t.me/AllClassicalMusic/874), [90](https://t.me/AllClassicalMusic/878), [98](https://t.me/AllClassicalMusic/882) **[J. van Zweden, 2010]**.                     
 **➔Pianoforte solo** - **D**anze ungheresi: versione per orchestra **[I. Fischer, Budapest Festival Orchestra, 1999]**.
 
+>• **BRUCKNER**:**➔Sinfonica** - **S**infonie: n. [9 WAB 109](https://t.me/AllClassicalMusic/3792) **[R. Muti, 2017]**
+
 >• **BUXTEHUDE**:**➔Vocale** - **C**antata: [BuxWV 64](https://t.me/AllClassicalMusic/406) **[A. Deller, Deller Consort, 1971]**.
 
 **C**
@@ -78,6 +80,8 @@
 >**• HAYDN**:**➔Sinfonica** - **S**infonie: Hob I/1, 2, 3, 4, 5, 6, 7, 8. **C**oncerti: per 2 **Lire** organizzate Hob VIIh/[1](https://t.me/AllClassicalMusic/1084), [2](https://t.me/AllClassicalMusic/1087), [3](https://t.me/AllClassicalMusic/1090), [4](https://t.me/AllClassicalMusic/1093), [5](https://t.me/AllClassicalMusic/1096) **[S. Lautenbacher, H. Ruf, 1970]**; per **violino** Hob VIIa/1, 2, 3, 4, per **violoncello** Hob VIIb/1, 2.
 
 **K**
+
+>**• KHACHAKATURIAN**:**➔Sinfonica** - **C**oncerti: per [**pianoforte**](https://t.me/AllClassicalMusic/3798), per [**violino**](https://t.me/AllClassicalMusic/3801) **[R. Kubelik. D. Oistrakh, Orchestre Symphonique de la Radio de Prague, 1993]**
 
 >**• KORNGOLD**:**➔Sinfonica**: **C**oncerto per **violino** e orchestra Op. [35](https://t.me/AllClassicalMusic/2977) **[Caroline Goulding, Berner Symphonieorchester,2018]**.
 
