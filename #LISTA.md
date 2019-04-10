@@ -194,7 +194,7 @@ T
 
 **W**
 
->**• WAGNER**:**➔Sinfonica** - **M**arce WWV [97](https://t.me/AllClassicalMusic/3325), [104](https://t.me/AllClassicalMusic/3327);**O**verture WWV [49](https://t.me/AllClassicalMusic/3326); **S**infonie: WWV [29](https://t.me/AllClassicalMusic/3319), [35](https://t.me/AllClassicalMusic/3323) **[N. Järvi, Royal Scottish National Orchestra, 2012]**.
+>**• WAGNER**:**➔Sinfonica** - **M**arce WWV [97](https://t.me/AllClassicalMusic/3325), [104](https://t.me/AllClassicalMusic/3327);**O**verture WWV [49](https://t.me/AllClassicalMusic/3326); **S**infonie: WWV [29](https://t.me/AllClassicalMusic/3319), [35](https://t.me/AllClassicalMusic/3323) **[N. Järvi, Royal Scottish National Orchestra, 2012]** - **S**infonica: [Siegfried Idyll](https://t.me/AllClassicalMusic/3822); **T**rascrizioni per pianoforte (Gould): [Götterdämmerung: Dawn and Siegfried's Rhine Journey](https://t.me/AllClassicalMusic/3824), [Preludio ''Die Meistersinger von Nürnberg''](https://t.me/AllClassicalMusic/3823), [Siegfried Idyll](https://t.me/AllClassicalMusic/3825).
 
 **Y**
 
