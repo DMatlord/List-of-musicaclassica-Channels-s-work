@@ -140,7 +140,7 @@
 
 >**• REGONDI**:**➔Chitarra Sola** - Arie varie Op. [21](https://t.me/AllClassicalMusic/2251), [22](https://t.me/AllClassicalMusic/2252), su '['I Capuleti e Montecchi'' di Bellini](https://t.me/AllClassicalMusic/2254); [Fantasia su ''Don Giovanni'' di Mozart](https://t.me/AllClassicalMusic/225)9, [Foglio d'album](https://t.me/AllClassicalMusic/2248); [Introduzione e Capriccio Op. 23](https://t.me/AllClassicalMusic/2253); [Notturno Op. 19 'Rêverie'](https://t.me/AllClassicalMusic/2249); [Rondò a capriccio Op. 20 Fête villageoise](https://t.me/AllClassicalMusic/2250); [Studi](https://t.me/AllClassicalMusic/2256) **[Alberto Mesirca, 2013]**.
 
->**• RESPIGHI**:**➔Sinfonica** - **P**oemi Sinfonici: P [157](https://t.me/AllClassicalMusic/11009 ('Feste Romane') **[G. Sinopoli, New York Philharmonic, 1993]**.
+>**• RESPIGHI**:**➔Sinfonica** - **P**oemi Sinfonici: P [157](https://t.me/AllClassicalMusic/11009) ('Feste Romane') **[G. Sinopoli, New York Philharmonic, 1993]**.
 
 >**• RODRIGO**:**➔Sinfonica**: **C**oncerti per **chitarra**: [Concierto de Aranjuez, Fantasia para un Gentilhombre](https://t.me/AllClassicalMusic/1366) **[G. Navarro, Philharmonia Orchestra/English Chamber Orchestra, Narciso Yepes, 1979/1978]**.
 
@@ -194,7 +194,7 @@ T
 
 **W**
 
->**• WAGNER**:**➔Sinfonica** - **M**arce WWV [97](https://t.me/AllClassicalMusic/3325), [104](https://t.me/AllClassicalMusic/3327);**O**verture WWV [49](https://t.me/AllClassicalMusic/3326); **S**infonie: WWV [29](https://t.me/AllClassicalMusic/3319), [35](https://t.me/AllClassicalMusic/3323) **[N. Järvi, Royal Scottish National Orchestra, 2012]** - **S**infonica: [Siegfried Idyll](https://t.me/AllClassicalMusic/3822); **T**rascrizioni per pianoforte (Gould): [Götterdämmerung: Dawn and Siegfried's Rhine Journey](https://t.me/AllClassicalMusic/3824), [Preludio ''Die Meistersinger von Nürnberg''](https://t.me/AllClassicalMusic/3823), [Siegfried Idyll](https://t.me/AllClassicalMusic/3825).
+>**• WAGNER**:**➔Sinfonica** - **M**arce WWV [97](https://t.me/AllClassicalMusic/3325), [104](https://t.me/AllClassicalMusic/3327);**O**verture WWV [49](https://t.me/AllClassicalMusic/3326); **S**infonie: WWV [29](https://t.me/AllClassicalMusic/3319), [35](https://t.me/AllClassicalMusic/3323) **[N. Järvi, Royal Scottish National Orchestra, 2012]** - **S**infonica: [Siegfried Idyll](https://t.me/AllClassicalMusic/3822); **T**rascrizioni per pianoforte (Gould): [Götterdämmerung: Dawn and Siegfried's Rhine Journey](https://t.me/AllClassicalMusic/3824), [Preludio ''Die Meistersinger von Nürnberg''](https://t.me/AllClassicalMusic/3823), [Siegfried Idyll](https://t.me/AllClassicalMusic/3825) **[G. Gould,  Toronto Symphony Orchestra, 1973/1982]**.
 
 **Y**
 
