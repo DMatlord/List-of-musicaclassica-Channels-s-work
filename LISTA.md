@@ -77,7 +77,7 @@
 
 **H**
 
->**• HAYDN**:**➔Sinfonica** - **S**infonie: Hob I/1, 2, 3, 4, 5, 6, 7, 8. **C**oncerti: per 2 **Lire** organizzate Hob VIIh/[1](https://t.me/AllClassicalMusic/1084), [2](https://t.me/AllClassicalMusic/1087), [3](https://t.me/AllClassicalMusic/1090), [4](https://t.me/AllClassicalMusic/1093), [5](https://t.me/AllClassicalMusic/1096) **[S. Lautenbacher, H. Ruf, 1970]**; per **violino** Hob VIIa/1, 2, 3, 4, per **violoncello** Hob VIIb/1, 2.
+>**• HAYDN**:**➔Sinfonica** - **C**omposizioni vocali sacre: Hob:XX:1/4; op. 51 ''[Le sette ultime parole del nostre Redentore in croce](https://t.me/AllClassicalMusic/3829)'' **[Muti, Berliner Philarmoniker, 1991]**;**S**infonie: Hob I/1, 2, 3, 4, 5, 6, 7, 8. **C**oncerti: per 2 **Lire** organizzate Hob VIIh/[1](https://t.me/AllClassicalMusic/1084), [2](https://t.me/AllClassicalMusic/1087), [3](https://t.me/AllClassicalMusic/1090), [4](https://t.me/AllClassicalMusic/1093), [5](https://t.me/AllClassicalMusic/1096) **[S. Lautenbacher, H. Ruf, 1970]**; per **violino** Hob VIIa/1, 2, 3, 4, per **violoncello** Hob VIIb/1, 2.
 
 **K**
 
