@@ -149,6 +149,8 @@
 
 >**• ROSSINI**:**➔Sinfonica** - [**O**vertures](https://t.me/AllClassicalMusic/3091) **[N. Marriner, A. of St. Martin in-the- Fields, 1992]**
 
+>**• ROTA**:**➔Sinfonica** - **C**oncerti: [per archi](https://t.me/AllClassicalMusic/3926); [Ballabili per ''Il gattopardo''](https://t.me/AllClassicalMusic/3930); [Suite ''La strada''](https://t.me/AllClassicalMusic/3919) **[R. Muti, Orchestra Filarmonica della Scala, 1994]**.
+
 **S**
 
 >**• SAINT-SAËNS**:**➔Sinfonica** - **A**llegro Op. [43](https://t.me/AllClassicalMusic/3716) [+]; **violino e orchestra**: Concerti per **pianoforte** Op. [17](https://t.me/AllClassicalMusic/2914), [22](https://t.me/AllClassicalMusic/2917), [29](https://t.me/AllClassicalMusic/2919), [44](https://t.me/AllClassicalMusic/2922), [103](https://t.me/AllClassicalMusic/2924) **[J-P. Collard, Royal Philharmonic Orchestra, A. Previn, 1987]**; **violino** Op. [20](https://t.me/AllClassicalMusic/3700), [58](https://t.me/AllClassicalMusic/3701), [61](https://t.me/AllClassicalMusic/3704) [+]; **I**ntroduzione e rondò capriccioso Op. [28](https://t.me/AllClassicalMusic/3708) [+]; Le Déluge Op. [45](https://t.me/AllClassicalMusic/3710) [+]; Sei studi per **pianoforte** Op. [52](https://t.me/AllClassicalMusic/3712) (Trascrizione per orchestra di Eugène Ysaÿe) [+]; Havanaise Op. [83](https://t.me/AllClassicalMusic/3714) [+]; **M**arce da concerto Op. [62](https://t.me/AllClassicalMusic/3713 [+]; **C**apriccio Op. [122](https://t.me/AllClassicalMusic/3715) [+]; ([-La muse et le poète-](https://t.me/AllClassicalMusic/3728) [+]; **violoncello e orchestra**: Concerti per violoncello Op. [33](https://t.me/AllClassicalMusic/3718), [119](https://t.me/AllClassicalMusic/3721) [+]; Romanza Op. [36](https://t.me/AllClassicalMusic/3729), [37](https://t.me/AllClassicalMusic/3709), [48](https://t.me/AllClassicalMusic/3711); ([-La muse et le poète-](https://t.me/AllClassicalMusic/1498)) **[C. Arming, Orchestre Philharmonique Royal de Liège, 2013]**; **S**infonie: Op. [78](https://t.me/AllClassicalMusic/2487) **[H. von Karajan, 1982]**; Suite per **violoncello e orchestra** Op. [16b](https://t.me/AllClassicalMusic/3723) **[C. Arming, Orchestre Philharmonique Royal de Liège, 2013]+**.
@@ -200,6 +202,8 @@ T
 **W**
 
 >**• WAGNER**:**➔Sinfonica** - **M**arce WWV [97](https://t.me/AllClassicalMusic/3325), [104](https://t.me/AllClassicalMusic/3327);**O**verture WWV [49](https://t.me/AllClassicalMusic/3326); **S**infonie: WWV [29](https://t.me/AllClassicalMusic/3319), [35](https://t.me/AllClassicalMusic/3323) **[N. Järvi, Royal Scottish National Orchestra, 2012]** - **S**infonica: [Siegfried Idyll](https://t.me/AllClassicalMusic/3822); **T**rascrizioni per pianoforte (Gould): [Götterdämmerung: Dawn and Siegfried's Rhine Journey](https://t.me/AllClassicalMusic/3824), [Preludio ''Die Meistersinger von Nürnberg''](https://t.me/AllClassicalMusic/3823), [Siegfried Idyll](https://t.me/AllClassicalMusic/3825) **[G. Gould,  Toronto Symphony Orchestra, 1973/1982]**.
+
+>**• WALTON**:**➔Sinfonica** - **S**infonie: Nn. [1](https://t.me/AllClassicalMusic/3940), [2](https://t.me/AllClassicalMusic/3945); [Siesta](https://t.me/AllClassicalMusic/3944) **[C. Mackerras, London Symphony/Philharmonic Orchestra, 2002]**.
 
 **Y**
 
