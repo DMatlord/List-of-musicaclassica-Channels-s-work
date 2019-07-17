@@ -39,6 +39,8 @@
 **➔Sinfonica** - **S**infonie: [Op. 68](https://t.me/AllClassicalMusic/870), [73](https://t.me/AllClassicalMusic/874), [90](https://t.me/AllClassicalMusic/878), [98](https://t.me/AllClassicalMusic/882) **[J. van Zweden, 2010]**.                     
 **➔Pianoforte solo** - **D**anze ungheresi: versione per orchestra **[I. Fischer, Budapest Festival Orchestra, 1999]**.
 
+>• **BRITTEN**:**➔Sinfonica** - **C**oncerti: per violino [Op. 15](https://t.me/AllClassicalMusic/3954) **[V. Frang, Frankfurt Radio Symphony, 2015]**.
+
 >• **BRUCKNER**:**➔Sinfonica** - **S**infonie: n. [9 WAB 109](https://t.me/AllClassicalMusic/3792) **[R. Muti, 2017]**
 
 >• **BUXTEHUDE**:**➔Vocale** - **C**antata: [BuxWV 64](https://t.me/AllClassicalMusic/406) **[A. Deller, Deller Consort, 1971]**.
@@ -84,7 +86,7 @@
 
 >**• KHACHAKATURIAN**:**➔Sinfonica** - **C**oncerti: per [**pianoforte**](https://t.me/AllClassicalMusic/3798), per [**violino**](https://t.me/AllClassicalMusic/3801) **[R. Kubelik. D. Oistrakh, Orchestre Symphonique de la Radio de Prague, 1993]**
 
->**• KORNGOLD**:**➔Sinfonica**: **C**oncerto per **violino** e orchestra Op. [35](https://t.me/AllClassicalMusic/2977) **[Caroline Goulding, Berner Symphonieorchester,2018]**.
+>**• KORNGOLD**:**➔Sinfonica**: **C**oncerto per **violino** e orchestra Op. [35](https://t.me/AllClassicalMusic/2977) **[Caroline Goulding, Berner Symphonieorchester,2018]**/[35](https://t.me/AllClassicalMusic/3951) **[V. Frang, Frankfurt Radio Symphony, 2015]**.
 
 **L**
 
@@ -187,7 +189,7 @@ T
 **V**
 
 >•**VERDI**:**➔Da Camera** > [Quartetto in mi minore](https://t.me/AllClassicalMusic/3283) **[Quartetto d'Archi della Scala, 2009]**. 
-**➔Sinfonica** > **O**verture e **P**reludi: Aida; Alzira; Giovanna d'Arco; Il corsaro; I Vespri siciliani (Sinfonia); Jérusalem; La forza del destino; La traviata; Macbeth (preludio)R. Chailly, filarmonica della Scala, 2012].
+**➔Sinfonica** > **O**verture e **P**reludi: Aida [(preludio)](https://t.me/AllClassicalMusic/3971); Alzira [(sinfonia)](https://t.me/AllClassicalMusic/3961); Giovanna d'Arco [(sinfonia)](https://t.me/AllClassicalMusic/3970); Il corsaro [(preludio)](https://t.me/AllClassicalMusic/3963); I Vespri siciliani [(sinfonia)](https://t.me/AllClassicalMusic/3960); Jérusalem ([arie da balletto](https://t.me/AllClassicalMusic/3966) e [introduzione](https://t.me/AllClassicalMusic/3965); La forza del destino [(sinfonia)](https://t.me/AllClassicalMusic/3973); La traviata [(preludio)](https://t.me/AllClassicalMusic/3962); Macbeth [(preludio)](https://t.me/AllClassicalMusic/3972); Nabucco [(sinfonia)](https://t.me/AllClassicalMusic/3964) **[R. Chailly, filarmonica della Scala, 2012]**.
 
 >•**VILLA LOBOS**:**➔Chitarra Sola** - [12 studi, 5 preludi](https://t.me/AllClassicalMusic/942).                 
 **➔Sinfonica** - **C**oncerto: [per **chitarra** ed orchestra](https://t.me/AllClassicalMusic/942) **[J. Bream, 1971-8]**.
