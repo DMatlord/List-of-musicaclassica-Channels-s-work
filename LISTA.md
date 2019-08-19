@@ -147,8 +147,7 @@
 
 >**• RODRIGO**:**➔Sinfonica**: **C**oncerti per **chitarra**: [Concierto de Aranjuez, Fantasia para un Gentilhombre](https://t.me/AllClassicalMusic/1366) **[G. Navarro, Philharmonia Orchestra/English Chamber Orchestra, Narciso Yepes, 1979/1978]**.
 
->**• ROSSINI**:**➔Sacra** - [**S**tabatMater](https://t.me/AllClassicalMusic/4034) **[C.M. Giulini, 1982]**.
-
+>**• ROSSINI**:**➔Sacra** - [**S**tabatMater](https://t.me/AllClassicalMusic/4034) **[C.M. Giulini, 1982]**.            
 **➔Sinfonica** - [**O**vertures](https://t.me/AllClassicalMusic/3091) **[N. Marriner, A. of St. Martin in-the- Fields, 1992]**.
 
 >**• ROTA**:**➔Sinfonica** - **C**oncerti: [per archi](https://t.me/AllClassicalMusic/3926); [Ballabili per ''Il gattopardo''](https://t.me/AllClassicalMusic/3930); [Suite ''La strada''](https://t.me/AllClassicalMusic/3919) **[R. Muti, Orchestra Filarmonica della Scala, 1994]**.
