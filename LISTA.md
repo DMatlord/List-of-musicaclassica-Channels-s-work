@@ -40,7 +40,7 @@
 
 >• **BRAHMS**:**➔Da Camera** - Per **clarinetto**: Trio Op. [114](https://t.me/AllClassicalMusic/3277), Quintetto Op. [115](https://t.me/AllClassicalMusic/3273) **[Gabrieli String Quartet , T. King,  C. Benson,  K. Georgian,  I. Jewel, K. Sillito, B. O' Reilly, K. Harvey, 1983]**; per **violino** e **pianoforte**: Sonate Op [78](https://t.me/AllClassicalMusic/3290), [100](https://t.me/AllClassicalMusic/3293), [108](https://t.me/AllClassicalMusic/3296), [WoO 2](https://t.me/AllClassicalMusic/3300) (F.A.E) **[Piano – Yefim Bronfman, Nikolaj Znaider, 2005]**.                           
 **➔Sinfonica** - **S**infonie: [Op. 68](https://t.me/AllClassicalMusic/870), [73](https://t.me/AllClassicalMusic/874), [90](https://t.me/AllClassicalMusic/878), [98](https://t.me/AllClassicalMusic/882) **[J. van Zweden, 2010]**.                     
-**➔Pianoforte solo** - **D**anze ungheresi: versione per orchestra **[I. Fischer, Budapest Festival Orchestra, 1999]**.
+**➔Pianoforte solo** - **D**anze ungheresi: versione per orchestra **[I. Fischer, Budapest Festival Orchestra, 1999]**;**P**ezzi Opp. [118](https://t.me/AllClassicalMusic/4085), [119](https://t.me/AllClassicalMusic/4091);**R**apsodie ungheresi nn. 1, 2 Op. [79](https://t.me/AllClassicalMusic/4083); **V**arizioni Handel Op. [24](https://t.me/AllClassicalMusic/4082) **[M. Perahia, 2010]**.
 
 >• **BRITTEN**:**➔Sinfonica** - **C**oncerti: per violino [Op. 15](https://t.me/AllClassicalMusic/3954) **[V. Frang, Frankfurt Radio Symphony, 2015]**.
 
@@ -79,7 +79,9 @@
 
 **G**
 
->• **GRIEG**:**➔Sinfonica** - **S**uites Orchestrali: Holberg Suite [Op. 40](https://t.me/AllClassicalMusic/2853), Peer Gynt Suite nn. 1 [Op. 46](https://t.me/AllClassicalMusic/2846), 2 [Op. 55](https://t.me/AllClassicalMusic/2850) **[V. Altschuler, Academic symphony Orchestra of St.Petersburg Philharmony, 1997]**. 
+>• **GRIEG**:**➔Da Camera** - Per **violino** e **pianoforte** **S**onate Opp. [8](https://t.me/AllClassicalMusic/4069), [13](https://t.me/AllClassicalMusic/4072), [45](https://t.me/AllClassicalMusic/4075) **[H. Kraggerud, H. Kjekshus, 1996]**.                                                       
+**➔Sinfonica** - **S**uites Orchestrali: Holberg Suite [Op. 40](https://t.me/AllClassicalMusic/2853), Peer Gynt Suite nn. 1 [Op. 46](https://t.me/AllClassicalMusic/2846), 2 [Op. 55](https://t.me/AllClassicalMusic/2850) **[V. Altschuler, Academic symphony Orchestra of St.Petersburg Philharmony, 1997]**. 
+
 
 **H**
 
