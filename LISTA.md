@@ -3,7 +3,7 @@
 [♪ ᴍᴀᴛᴛɪᴀ](https://t.me.DMatlord) for [@musicaclassica](https://t.me.musicaclassica)
 
 
-📌 *Gli hashtag nel canale non contengono eventuali accenti dei cognomi dei compositori per facilitarne l'uso nella ricerca*.
+📌 *Gli hashtag nel canale non contengono eventuali accenti dei cognomi dei compositori al fine di facilitarne l'uso nella ricerca*.
 
 
 
